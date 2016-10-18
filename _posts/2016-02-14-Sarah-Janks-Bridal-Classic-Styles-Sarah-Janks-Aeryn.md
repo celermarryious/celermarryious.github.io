@@ -9,7 +9,7 @@ tags: [Sarah Janks Bridal Classic Styles]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68472-sarah-janks-aeryn.html"><img src="//static.msromantic.com/159890/sarah-janks-aeryn.jpg" alt="Sarah Janks Aeryn" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68472-sarah-janks-aeryn.html"><img src="//static.msromantic.com/159890/sarah-janks-aeryn.jpg" alt="Sarah Janks Aeryn" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68472-sarah-janks-aeryn.html"><img src="//static.msromantic.com/159889/sarah-janks-aeryn.jpg" alt="Sarah Janks Aeryn" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68472-sarah-janks-aeryn.html](https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68472-sarah-janks-aeryn.html)
+<!-- break --><a href="https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68472-sarah-janks-aeryn.html"><img src="//static.msromantic.com/159889/sarah-janks-aeryn.jpg" alt="Sarah Janks Aeryn" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68472-sarah-janks-aeryn.html](https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68472-sarah-janks-aeryn.html)

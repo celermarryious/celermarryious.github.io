@@ -9,7 +9,7 @@ tags: [Ruben Perlotti Other Collections Ruben Perlotti]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66282-ruben-perlotti-staria.html"><img src="//static.msromantic.com/153309/ruben-perlotti-staria.jpg" alt="Ruben Perlotti STARIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66282-ruben-perlotti-staria.html"><img src="//static.msromantic.com/153309/ruben-perlotti-staria.jpg" alt="Ruben Perlotti STARIA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66282-ruben-perlotti-staria.html](https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66282-ruben-perlotti-staria.html)
+Buy it: [https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66282-ruben-perlotti-staria.html](https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66282-ruben-perlotti-staria.html)

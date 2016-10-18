@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71344-sophia-tolli-wedding-dress-y11634-loraina.html"><img src="//static.msromantic.com/167454/sophia-tolli-wedding-dress-y11634-loraina.jpg" alt="Sophia Tolli Wedding Dress Y11634 Loraina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71344-sophia-tolli-wedding-dress-y11634-loraina.html"><img src="//static.msromantic.com/167454/sophia-tolli-wedding-dress-y11634-loraina.jpg" alt="Sophia Tolli Wedding Dress Y11634 Loraina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71344-sophia-tolli-wedding-dress-y11634-loraina.html"><img src="//static.msromantic.com/167453/sophia-tolli-wedding-dress-y11634-loraina.jpg" alt="Sophia Tolli Wedding Dress Y11634 Loraina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71344-sophia-tolli-wedding-dress-y11634-loraina.html](https://www.readybrides.com/en/sophia-tolli/71344-sophia-tolli-wedding-dress-y11634-loraina.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71344-sophia-tolli-wedding-dress-y11634-loraina.html"><img src="//static.msromantic.com/167453/sophia-tolli-wedding-dress-y11634-loraina.jpg" alt="Sophia Tolli Wedding Dress Y11634 Loraina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71344-sophia-tolli-wedding-dress-y11634-loraina.html](https://www.antebrands.com/en/sophia-tolli/71344-sophia-tolli-wedding-dress-y11634-loraina.html)

@@ -9,7 +9,7 @@ tags: [Suzanne Neville Classics Collection]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/suzanne-neville-classics-collection/68711-suzanne-neville-regency.html"><img src="//static.msromantic.com/160359/suzanne-neville-regency.jpg" alt="Suzanne Neville Regency" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/suzanne-neville-classics-collection/68711-suzanne-neville-regency.html"><img src="//static.msromantic.com/160359/suzanne-neville-regency.jpg" alt="Suzanne Neville Regency" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/suzanne-neville-classics-collection/68711-suzanne-neville-regency.html](https://www.readybrides.com/en/suzanne-neville-classics-collection/68711-suzanne-neville-regency.html)
+Buy it: [https://www.antebrands.com/en/suzanne-neville-classics-collection/68711-suzanne-neville-regency.html](https://www.antebrands.com/en/suzanne-neville-classics-collection/68711-suzanne-neville-regency.html)

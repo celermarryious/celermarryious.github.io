@@ -9,7 +9,7 @@ tags: [Ruben Perlotti Evita Collection Ruben Perlotti]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66160-ruben-perlotti-sara.html"><img src="//static.msromantic.com/153156/ruben-perlotti-sara.jpg" alt="Ruben Perlotti SARA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66160-ruben-perlotti-sara.html"><img src="//static.msromantic.com/153156/ruben-perlotti-sara.jpg" alt="Ruben Perlotti SARA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66160-ruben-perlotti-sara.html](https://www.readybrides.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66160-ruben-perlotti-sara.html)
+Buy it: [https://www.antebrands.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66160-ruben-perlotti-sara.html](https://www.antebrands.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66160-ruben-perlotti-sara.html)

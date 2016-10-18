@@ -9,7 +9,7 @@ tags: [Macis Design Flower Girl Dresses]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/macis-design-flower-girl-dresses/69944-macis-preteen-2005.html"><img src="//static.msromantic.com/164606/macis-preteen-2005.jpg" alt="Macis Preteen 2005" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/macis-design-flower-girl-dresses/69944-macis-preteen-2005.html"><img src="//static.msromantic.com/164606/macis-preteen-2005.jpg" alt="Macis Preteen 2005" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/macis-design-flower-girl-dresses/69944-macis-preteen-2005.html](https://www.readybrides.com/en/macis-design-flower-girl-dresses/69944-macis-preteen-2005.html)
+Buy it: [https://www.antebrands.com/en/macis-design-flower-girl-dresses/69944-macis-preteen-2005.html](https://www.antebrands.com/en/macis-design-flower-girl-dresses/69944-macis-preteen-2005.html)

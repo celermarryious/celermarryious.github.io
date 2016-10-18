@@ -9,9 +9,9 @@ tags: [Madison James Bridal]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/madison-james-bridal/65946-madison-james-style-mj156.html"><img src="//static.msromantic.com/152136/madison-james-style-mj156.jpg" alt="Madison James Style MJ156" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madison-james-bridal/65946-madison-james-style-mj156.html"><img src="//static.msromantic.com/152136/madison-james-style-mj156.jpg" alt="Madison James Style MJ156" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/madison-james-bridal/65946-madison-james-style-mj156.html"><img src="//static.msromantic.com/152137/madison-james-style-mj156.jpg" alt="Madison James Style MJ156" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/madison-james-bridal/65946-madison-james-style-mj156.html"><img src="//static.msromantic.com/152138/madison-james-style-mj156.jpg" alt="Madison James Style MJ156" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/madison-james-bridal/65946-madison-james-style-mj156.html"><img src="//static.msromantic.com/152135/madison-james-style-mj156.jpg" alt="Madison James Style MJ156" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/madison-james-bridal/65946-madison-james-style-mj156.html](https://www.readybrides.com/en/madison-james-bridal/65946-madison-james-style-mj156.html)
+<!-- break --><a href="https://www.antebrands.com/en/madison-james-bridal/65946-madison-james-style-mj156.html"><img src="//static.msromantic.com/152137/madison-james-style-mj156.jpg" alt="Madison James Style MJ156" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madison-james-bridal/65946-madison-james-style-mj156.html"><img src="//static.msromantic.com/152138/madison-james-style-mj156.jpg" alt="Madison James Style MJ156" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madison-james-bridal/65946-madison-james-style-mj156.html"><img src="//static.msromantic.com/152135/madison-james-style-mj156.jpg" alt="Madison James Style MJ156" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/madison-james-bridal/65946-madison-james-style-mj156.html](https://www.antebrands.com/en/madison-james-bridal/65946-madison-james-style-mj156.html)

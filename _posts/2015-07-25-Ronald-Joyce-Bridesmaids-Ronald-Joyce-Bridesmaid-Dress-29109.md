@@ -9,7 +9,7 @@ tags: [Ronald Joyce Bridesmaids]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ronald-joyce-bridesmaids/70603-ronald-joyce-bridesmaid-dress-29109.html"><img src="//static.msromantic.com/166051/ronald-joyce-bridesmaid-dress-29109.jpg" alt="Ronald Joyce Bridesmaid Dress 29109" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ronald-joyce-bridesmaids/70603-ronald-joyce-bridesmaid-dress-29109.html"><img src="//static.msromantic.com/166051/ronald-joyce-bridesmaid-dress-29109.jpg" alt="Ronald Joyce Bridesmaid Dress 29109" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ronald-joyce-bridesmaids/70603-ronald-joyce-bridesmaid-dress-29109.html](https://www.readybrides.com/en/ronald-joyce-bridesmaids/70603-ronald-joyce-bridesmaid-dress-29109.html)
+Buy it: [https://www.antebrands.com/en/ronald-joyce-bridesmaids/70603-ronald-joyce-bridesmaid-dress-29109.html](https://www.antebrands.com/en/ronald-joyce-bridesmaids/70603-ronald-joyce-bridesmaid-dress-29109.html)

@@ -9,7 +9,7 @@ tags: [Tobi Hannah Vault]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tobi-hannah-vault/69844-tobi-hannah-brode-short-wedding-dress.html"><img src="//static.msromantic.com/164449/tobi-hannah-brode-short-wedding-dress.jpg" alt="Tobi Hannah Brode Short Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tobi-hannah-vault/69844-tobi-hannah-brode-short-wedding-dress.html"><img src="//static.msromantic.com/164449/tobi-hannah-brode-short-wedding-dress.jpg" alt="Tobi Hannah Brode Short Wedding Dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tobi-hannah-vault/69844-tobi-hannah-brode-short-wedding-dress.html](https://www.readybrides.com/en/tobi-hannah-vault/69844-tobi-hannah-brode-short-wedding-dress.html)
+Buy it: [https://www.antebrands.com/en/tobi-hannah-vault/69844-tobi-hannah-brode-short-wedding-dress.html](https://www.antebrands.com/en/tobi-hannah-vault/69844-tobi-hannah-brode-short-wedding-dress.html)

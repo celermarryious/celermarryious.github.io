@@ -9,7 +9,7 @@ tags: [Adriana Alier Coleccion 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71464-adriana-alier-jota.html"><img src="//static.msromantic.com/167713/adriana-alier-jota.jpg" alt="Adriana Alier JOTA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71464-adriana-alier-jota.html"><img src="//static.msromantic.com/167713/adriana-alier-jota.jpg" alt="Adriana Alier JOTA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71464-adriana-alier-jota.html"><img src="//static.msromantic.com/167712/adriana-alier-jota.jpg" alt="Adriana Alier JOTA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adriana-alier-coleccion-2016/71464-adriana-alier-jota.html](https://www.readybrides.com/en/adriana-alier-coleccion-2016/71464-adriana-alier-jota.html)
+<!-- break --><a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71464-adriana-alier-jota.html"><img src="//static.msromantic.com/167712/adriana-alier-jota.jpg" alt="Adriana Alier JOTA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adriana-alier-coleccion-2016/71464-adriana-alier-jota.html](https://www.antebrands.com/en/adriana-alier-coleccion-2016/71464-adriana-alier-jota.html)

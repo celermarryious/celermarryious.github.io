@@ -9,7 +9,7 @@ tags: [Stephanie Allin Love Letters Collection 2016]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68818-stephanie-allin-charlotte-serena-belt.html"><img src="//static.msromantic.com/160610/stephanie-allin-charlotte-serena-belt.jpg" alt="Stephanie Allin Charlotte & Serena Belt" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68818-stephanie-allin-charlotte-serena-belt.html"><img src="//static.msromantic.com/160610/stephanie-allin-charlotte-serena-belt.jpg" alt="Stephanie Allin Charlotte & Serena Belt" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68818-stephanie-allin-charlotte-serena-belt.html"><img src="//static.msromantic.com/160609/stephanie-allin-charlotte-serena-belt.jpg" alt="Stephanie Allin Charlotte & Serena Belt" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68818-stephanie-allin-charlotte-serena-belt.html](https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68818-stephanie-allin-charlotte-serena-belt.html)
+<!-- break --><a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68818-stephanie-allin-charlotte-serena-belt.html"><img src="//static.msromantic.com/160609/stephanie-allin-charlotte-serena-belt.jpg" alt="Stephanie Allin Charlotte & Serena Belt" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68818-stephanie-allin-charlotte-serena-belt.html](https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68818-stephanie-allin-charlotte-serena-belt.html)

@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica 2016]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66480-romantica-of-devon-bronwyn.html"><img src="//static.msromantic.com/153894/romantica-of-devon-bronwyn.jpg" alt="Romantica of Devon Bronwyn" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66480-romantica-of-devon-bronwyn.html"><img src="//static.msromantic.com/153894/romantica-of-devon-bronwyn.jpg" alt="Romantica of Devon Bronwyn" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66480-romantica-of-devon-bronwyn.html"><img src="//static.msromantic.com/153893/romantica-of-devon-bronwyn.jpg" alt="Romantica of Devon Bronwyn" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66480-romantica-of-devon-bronwyn.html](https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66480-romantica-of-devon-bronwyn.html)
+<!-- break --><a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66480-romantica-of-devon-bronwyn.html"><img src="//static.msromantic.com/153893/romantica-of-devon-bronwyn.jpg" alt="Romantica of Devon Bronwyn" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66480-romantica-of-devon-bronwyn.html](https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66480-romantica-of-devon-bronwyn.html)

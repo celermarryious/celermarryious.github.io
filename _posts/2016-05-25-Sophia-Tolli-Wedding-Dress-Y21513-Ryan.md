@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71375-sophia-tolli-wedding-dress-y21513-ryan.html"><img src="//static.msromantic.com/167527/sophia-tolli-wedding-dress-y21513-ryan.jpg" alt="Sophia Tolli Wedding Dress Y21513 Ryan" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71375-sophia-tolli-wedding-dress-y21513-ryan.html"><img src="//static.msromantic.com/167527/sophia-tolli-wedding-dress-y21513-ryan.jpg" alt="Sophia Tolli Wedding Dress Y21513 Ryan" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71375-sophia-tolli-wedding-dress-y21513-ryan.html"><img src="//static.msromantic.com/167526/sophia-tolli-wedding-dress-y21513-ryan.jpg" alt="Sophia Tolli Wedding Dress Y21513 Ryan" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71375-sophia-tolli-wedding-dress-y21513-ryan.html](https://www.readybrides.com/en/sophia-tolli/71375-sophia-tolli-wedding-dress-y21513-ryan.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71375-sophia-tolli-wedding-dress-y21513-ryan.html"><img src="//static.msromantic.com/167526/sophia-tolli-wedding-dress-y21513-ryan.jpg" alt="Sophia Tolli Wedding Dress Y21513 Ryan" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71375-sophia-tolli-wedding-dress-y21513-ryan.html](https://www.antebrands.com/en/sophia-tolli/71375-sophia-tolli-wedding-dress-y21513-ryan.html)

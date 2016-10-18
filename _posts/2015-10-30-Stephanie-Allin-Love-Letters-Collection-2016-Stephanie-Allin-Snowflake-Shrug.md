@@ -9,7 +9,7 @@ tags: [Stephanie Allin Love Letters Collection 2016]
 Just **$499.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68832-stephanie-allin-snowflake-shrug.html"><img src="//static.msromantic.com/160638/stephanie-allin-snowflake-shrug.jpg" alt="Stephanie Allin Snowflake Shrug" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68832-stephanie-allin-snowflake-shrug.html"><img src="//static.msromantic.com/160638/stephanie-allin-snowflake-shrug.jpg" alt="Stephanie Allin Snowflake Shrug" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68832-stephanie-allin-snowflake-shrug.html"><img src="//static.msromantic.com/160637/stephanie-allin-snowflake-shrug.jpg" alt="Stephanie Allin Snowflake Shrug" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68832-stephanie-allin-snowflake-shrug.html](https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68832-stephanie-allin-snowflake-shrug.html)
+<!-- break --><a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68832-stephanie-allin-snowflake-shrug.html"><img src="//static.msromantic.com/160637/stephanie-allin-snowflake-shrug.jpg" alt="Stephanie Allin Snowflake Shrug" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68832-stephanie-allin-snowflake-shrug.html](https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68832-stephanie-allin-snowflake-shrug.html)

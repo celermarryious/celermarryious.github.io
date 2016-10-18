@@ -9,7 +9,7 @@ tags: [Romantica of Devon Silhouette]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-silhouette/67025-romantica-of-devon-gladiola.html"><img src="//static.msromantic.com/155244/romantica-of-devon-gladiola.jpg" alt="Romantica of Devon Gladiola" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-silhouette/67025-romantica-of-devon-gladiola.html"><img src="//static.msromantic.com/155244/romantica-of-devon-gladiola.jpg" alt="Romantica of Devon Gladiola" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-silhouette/67025-romantica-of-devon-gladiola.html](https://www.readybrides.com/en/romantica-of-devon-silhouette/67025-romantica-of-devon-gladiola.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-silhouette/67025-romantica-of-devon-gladiola.html](https://www.antebrands.com/en/romantica-of-devon-silhouette/67025-romantica-of-devon-gladiola.html)

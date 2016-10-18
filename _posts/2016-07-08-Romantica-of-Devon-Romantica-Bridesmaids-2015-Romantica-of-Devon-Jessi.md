@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2015]
 Just **$169.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66749-romantica-of-devon-jessi.html"><img src="//static.msromantic.com/154561/romantica-of-devon-jessi.jpg" alt="Romantica of Devon Jessi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66749-romantica-of-devon-jessi.html"><img src="//static.msromantic.com/154561/romantica-of-devon-jessi.jpg" alt="Romantica of Devon Jessi" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66749-romantica-of-devon-jessi.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66749-romantica-of-devon-jessi.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66749-romantica-of-devon-jessi.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66749-romantica-of-devon-jessi.html)

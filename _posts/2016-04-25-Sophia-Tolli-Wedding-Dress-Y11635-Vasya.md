@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$489.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71345-sophia-tolli-wedding-dress-y11635-vasya.html"><img src="//static.msromantic.com/167456/sophia-tolli-wedding-dress-y11635-vasya.jpg" alt="Sophia Tolli Wedding Dress Y11635 Vasya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71345-sophia-tolli-wedding-dress-y11635-vasya.html"><img src="//static.msromantic.com/167456/sophia-tolli-wedding-dress-y11635-vasya.jpg" alt="Sophia Tolli Wedding Dress Y11635 Vasya" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71345-sophia-tolli-wedding-dress-y11635-vasya.html"><img src="//static.msromantic.com/167455/sophia-tolli-wedding-dress-y11635-vasya.jpg" alt="Sophia Tolli Wedding Dress Y11635 Vasya" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71345-sophia-tolli-wedding-dress-y11635-vasya.html](https://www.readybrides.com/en/sophia-tolli/71345-sophia-tolli-wedding-dress-y11635-vasya.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71345-sophia-tolli-wedding-dress-y11635-vasya.html"><img src="//static.msromantic.com/167455/sophia-tolli-wedding-dress-y11635-vasya.jpg" alt="Sophia Tolli Wedding Dress Y11635 Vasya" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71345-sophia-tolli-wedding-dress-y11635-vasya.html](https://www.antebrands.com/en/sophia-tolli/71345-sophia-tolli-wedding-dress-y11635-vasya.html)

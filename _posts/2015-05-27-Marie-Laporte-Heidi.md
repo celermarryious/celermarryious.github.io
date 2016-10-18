@@ -9,8 +9,8 @@ tags: [Marie Laporte]
 Just **$469.99**
 ###      
 <table><tr><td>BRANDS</td><td>Marie Laporte</td></tr></table>
-<a href="https://www.readybrides.com/en/marie-laporte/67275-marie-laporte-heidi.html"><img src="//static.msromantic.com/156007/marie-laporte-heidi.jpg" alt="Marie Laporte Heidi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marie-laporte/67275-marie-laporte-heidi.html"><img src="//static.msromantic.com/156007/marie-laporte-heidi.jpg" alt="Marie Laporte Heidi" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/marie-laporte/67275-marie-laporte-heidi.html"><img src="//static.msromantic.com/156008/marie-laporte-heidi.jpg" alt="Marie Laporte Heidi" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/marie-laporte/67275-marie-laporte-heidi.html"><img src="//static.msromantic.com/156006/marie-laporte-heidi.jpg" alt="Marie Laporte Heidi" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/marie-laporte/67275-marie-laporte-heidi.html](https://www.readybrides.com/en/marie-laporte/67275-marie-laporte-heidi.html)
+<!-- break --><a href="https://www.antebrands.com/en/marie-laporte/67275-marie-laporte-heidi.html"><img src="//static.msromantic.com/156008/marie-laporte-heidi.jpg" alt="Marie Laporte Heidi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marie-laporte/67275-marie-laporte-heidi.html"><img src="//static.msromantic.com/156006/marie-laporte-heidi.jpg" alt="Marie Laporte Heidi" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/marie-laporte/67275-marie-laporte-heidi.html](https://www.antebrands.com/en/marie-laporte/67275-marie-laporte-heidi.html)

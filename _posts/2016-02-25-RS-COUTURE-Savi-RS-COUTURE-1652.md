@@ -9,7 +9,7 @@ tags: [RS COUTURE Savi]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rs-couture-savi/67549-rs-couture-1652.html"><img src="//static.msromantic.com/156709/rs-couture-1652.jpg" alt="RS COUTURE 1652" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rs-couture-savi/67549-rs-couture-1652.html"><img src="//static.msromantic.com/156709/rs-couture-1652.jpg" alt="RS COUTURE 1652" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rs-couture-savi/67549-rs-couture-1652.html](https://www.readybrides.com/en/rs-couture-savi/67549-rs-couture-1652.html)
+Buy it: [https://www.antebrands.com/en/rs-couture-savi/67549-rs-couture-1652.html](https://www.antebrands.com/en/rs-couture-savi/67549-rs-couture-1652.html)

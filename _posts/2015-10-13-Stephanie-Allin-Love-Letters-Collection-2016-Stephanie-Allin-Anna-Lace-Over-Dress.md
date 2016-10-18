@@ -9,7 +9,7 @@ tags: [Stephanie Allin Love Letters Collection 2016]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68815-stephanie-allin-anna-lace-over-dress.html"><img src="//static.msromantic.com/160604/stephanie-allin-anna-lace-over-dress.jpg" alt="Stephanie Allin Anna Lace Over Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68815-stephanie-allin-anna-lace-over-dress.html"><img src="//static.msromantic.com/160604/stephanie-allin-anna-lace-over-dress.jpg" alt="Stephanie Allin Anna Lace Over Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68815-stephanie-allin-anna-lace-over-dress.html"><img src="//static.msromantic.com/160603/stephanie-allin-anna-lace-over-dress.jpg" alt="Stephanie Allin Anna Lace Over Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68815-stephanie-allin-anna-lace-over-dress.html](https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68815-stephanie-allin-anna-lace-over-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68815-stephanie-allin-anna-lace-over-dress.html"><img src="//static.msromantic.com/160603/stephanie-allin-anna-lace-over-dress.jpg" alt="Stephanie Allin Anna Lace Over Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68815-stephanie-allin-anna-lace-over-dress.html](https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68815-stephanie-allin-anna-lace-over-dress.html)

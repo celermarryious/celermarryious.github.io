@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71338-sophia-tolli-wedding-dress-y11628-princess.html"><img src="//static.msromantic.com/167439/sophia-tolli-wedding-dress-y11628-princess.jpg" alt="Sophia Tolli Wedding Dress Y11628 Princess" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71338-sophia-tolli-wedding-dress-y11628-princess.html"><img src="//static.msromantic.com/167439/sophia-tolli-wedding-dress-y11628-princess.jpg" alt="Sophia Tolli Wedding Dress Y11628 Princess" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71338-sophia-tolli-wedding-dress-y11628-princess.html"><img src="//static.msromantic.com/167438/sophia-tolli-wedding-dress-y11628-princess.jpg" alt="Sophia Tolli Wedding Dress Y11628 Princess" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71338-sophia-tolli-wedding-dress-y11628-princess.html](https://www.readybrides.com/en/sophia-tolli/71338-sophia-tolli-wedding-dress-y11628-princess.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71338-sophia-tolli-wedding-dress-y11628-princess.html"><img src="//static.msromantic.com/167438/sophia-tolli-wedding-dress-y11628-princess.jpg" alt="Sophia Tolli Wedding Dress Y11628 Princess" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71338-sophia-tolli-wedding-dress-y11628-princess.html](https://www.antebrands.com/en/sophia-tolli/71338-sophia-tolli-wedding-dress-y11628-princess.html)

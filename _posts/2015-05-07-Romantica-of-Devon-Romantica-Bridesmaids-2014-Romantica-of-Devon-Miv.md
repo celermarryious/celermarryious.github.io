@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2014]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2014/66788-romantica-of-devon-miv.html"><img src="//static.msromantic.com/154615/romantica-of-devon-miv.jpg" alt="Romantica of Devon Miv" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2014/66788-romantica-of-devon-miv.html"><img src="//static.msromantic.com/154615/romantica-of-devon-miv.jpg" alt="Romantica of Devon Miv" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2014/66788-romantica-of-devon-miv.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2014/66788-romantica-of-devon-miv.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2014/66788-romantica-of-devon-miv.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2014/66788-romantica-of-devon-miv.html)

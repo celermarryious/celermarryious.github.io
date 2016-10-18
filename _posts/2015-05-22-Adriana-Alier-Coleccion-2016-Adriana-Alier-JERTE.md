@@ -9,7 +9,7 @@ tags: [Adriana Alier Coleccion 2016]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71473-adriana-alier-jerte.html"><img src="//static.msromantic.com/167732/adriana-alier-jerte.jpg" alt="Adriana Alier JERTE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71473-adriana-alier-jerte.html"><img src="//static.msromantic.com/167732/adriana-alier-jerte.jpg" alt="Adriana Alier JERTE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71473-adriana-alier-jerte.html"><img src="//static.msromantic.com/167731/adriana-alier-jerte.jpg" alt="Adriana Alier JERTE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adriana-alier-coleccion-2016/71473-adriana-alier-jerte.html](https://www.readybrides.com/en/adriana-alier-coleccion-2016/71473-adriana-alier-jerte.html)
+<!-- break --><a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71473-adriana-alier-jerte.html"><img src="//static.msromantic.com/167731/adriana-alier-jerte.jpg" alt="Adriana Alier JERTE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adriana-alier-coleccion-2016/71473-adriana-alier-jerte.html](https://www.antebrands.com/en/adriana-alier-coleccion-2016/71473-adriana-alier-jerte.html)

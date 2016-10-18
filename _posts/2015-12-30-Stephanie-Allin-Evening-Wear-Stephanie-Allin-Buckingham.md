@@ -9,7 +9,7 @@ tags: [Stephanie Allin Evening Wear]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-evening-wear/68893-stephanie-allin-buckingham.html"><img src="//static.msromantic.com/160750/stephanie-allin-buckingham.jpg" alt="Stephanie Allin Buckingham" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-evening-wear/68893-stephanie-allin-buckingham.html"><img src="//static.msromantic.com/160750/stephanie-allin-buckingham.jpg" alt="Stephanie Allin Buckingham" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/stephanie-allin-evening-wear/68893-stephanie-allin-buckingham.html](https://www.readybrides.com/en/stephanie-allin-evening-wear/68893-stephanie-allin-buckingham.html)
+Buy it: [https://www.antebrands.com/en/stephanie-allin-evening-wear/68893-stephanie-allin-buckingham.html](https://www.antebrands.com/en/stephanie-allin-evening-wear/68893-stephanie-allin-buckingham.html)

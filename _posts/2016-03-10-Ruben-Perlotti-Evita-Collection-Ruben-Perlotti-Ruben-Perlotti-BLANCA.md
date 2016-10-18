@@ -9,7 +9,7 @@ tags: [Ruben Perlotti Evita Collection Ruben Perlotti]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66162-ruben-perlotti-blanca.html"><img src="//static.msromantic.com/153158/ruben-perlotti-blanca.jpg" alt="Ruben Perlotti BLANCA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66162-ruben-perlotti-blanca.html"><img src="//static.msromantic.com/153158/ruben-perlotti-blanca.jpg" alt="Ruben Perlotti BLANCA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66162-ruben-perlotti-blanca.html](https://www.readybrides.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66162-ruben-perlotti-blanca.html)
+Buy it: [https://www.antebrands.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66162-ruben-perlotti-blanca.html](https://www.antebrands.com/en/ruben-perlotti-evita-collection-ruben-perlotti/66162-ruben-perlotti-blanca.html)

@@ -9,7 +9,7 @@ tags: [Ruben Perlotti Other Collections Ruben Perlotti]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66285-ruben-perlotti-aloydra.html"><img src="//static.msromantic.com/153312/ruben-perlotti-aloydra.jpg" alt="Ruben Perlotti ALOYDRA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66285-ruben-perlotti-aloydra.html"><img src="//static.msromantic.com/153312/ruben-perlotti-aloydra.jpg" alt="Ruben Perlotti ALOYDRA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66285-ruben-perlotti-aloydra.html](https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66285-ruben-perlotti-aloydra.html)
+Buy it: [https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66285-ruben-perlotti-aloydra.html](https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66285-ruben-perlotti-aloydra.html)

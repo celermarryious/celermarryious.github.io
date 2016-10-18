@@ -9,8 +9,8 @@ tags: [Amanda Wyatt]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html"><img src="//static.msromantic.com/157977/amanda-wyatt-heritage-collection-nicosia.jpg" alt="Amanda Wyatt Heritage Collection Nicosia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html"><img src="//static.msromantic.com/157977/amanda-wyatt-heritage-collection-nicosia.jpg" alt="Amanda Wyatt Heritage Collection Nicosia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html"><img src="//static.msromantic.com/157979/amanda-wyatt-heritage-collection-nicosia.jpg" alt="Amanda Wyatt Heritage Collection Nicosia" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html"><img src="//static.msromantic.com/157976/amanda-wyatt-heritage-collection-nicosia.jpg" alt="Amanda Wyatt Heritage Collection Nicosia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html](https://www.readybrides.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html)
+<!-- break --><a href="https://www.antebrands.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html"><img src="//static.msromantic.com/157979/amanda-wyatt-heritage-collection-nicosia.jpg" alt="Amanda Wyatt Heritage Collection Nicosia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html"><img src="//static.msromantic.com/157976/amanda-wyatt-heritage-collection-nicosia.jpg" alt="Amanda Wyatt Heritage Collection Nicosia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html](https://www.antebrands.com/en/amanda-wyatt/67947-amanda-wyatt-heritage-collection-nicosia.html)

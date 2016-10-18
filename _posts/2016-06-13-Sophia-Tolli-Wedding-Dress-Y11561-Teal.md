@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71394-sophia-tolli-wedding-dress-y11561-teal.html"><img src="//static.msromantic.com/167568/sophia-tolli-wedding-dress-y11561-teal.jpg" alt="Sophia Tolli Wedding Dress Y11561 Teal" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71394-sophia-tolli-wedding-dress-y11561-teal.html"><img src="//static.msromantic.com/167568/sophia-tolli-wedding-dress-y11561-teal.jpg" alt="Sophia Tolli Wedding Dress Y11561 Teal" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71394-sophia-tolli-wedding-dress-y11561-teal.html"><img src="//static.msromantic.com/167567/sophia-tolli-wedding-dress-y11561-teal.jpg" alt="Sophia Tolli Wedding Dress Y11561 Teal" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71394-sophia-tolli-wedding-dress-y11561-teal.html](https://www.readybrides.com/en/sophia-tolli/71394-sophia-tolli-wedding-dress-y11561-teal.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71394-sophia-tolli-wedding-dress-y11561-teal.html"><img src="//static.msromantic.com/167567/sophia-tolli-wedding-dress-y11561-teal.jpg" alt="Sophia Tolli Wedding Dress Y11561 Teal" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71394-sophia-tolli-wedding-dress-y11561-teal.html](https://www.antebrands.com/en/sophia-tolli/71394-sophia-tolli-wedding-dress-y11561-teal.html)

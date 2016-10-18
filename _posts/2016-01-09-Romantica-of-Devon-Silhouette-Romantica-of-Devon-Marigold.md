@@ -9,7 +9,7 @@ tags: [Romantica of Devon Silhouette]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-silhouette/67035-romantica-of-devon-marigold.html"><img src="//static.msromantic.com/155272/romantica-of-devon-marigold.jpg" alt="Romantica of Devon Marigold" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-silhouette/67035-romantica-of-devon-marigold.html"><img src="//static.msromantic.com/155272/romantica-of-devon-marigold.jpg" alt="Romantica of Devon Marigold" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-silhouette/67035-romantica-of-devon-marigold.html](https://www.readybrides.com/en/romantica-of-devon-silhouette/67035-romantica-of-devon-marigold.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-silhouette/67035-romantica-of-devon-marigold.html](https://www.antebrands.com/en/romantica-of-devon-silhouette/67035-romantica-of-devon-marigold.html)

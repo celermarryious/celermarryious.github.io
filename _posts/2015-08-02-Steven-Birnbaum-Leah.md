@@ -9,7 +9,7 @@ tags: [Steven Birnbaum]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/steven-birnbaum/67809-leah.html"><img src="//static.msromantic.com/157404/leah.jpg" alt="Leah" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/steven-birnbaum/67809-leah.html"><img src="//static.msromantic.com/157404/leah.jpg" alt="Leah" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/steven-birnbaum/67809-leah.html](https://www.readybrides.com/en/steven-birnbaum/67809-leah.html)
+Buy it: [https://www.antebrands.com/en/steven-birnbaum/67809-leah.html](https://www.antebrands.com/en/steven-birnbaum/67809-leah.html)

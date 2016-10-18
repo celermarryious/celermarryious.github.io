@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$469.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71370-sophia-tolli-wedding-dress-y21508-sidney.html"><img src="//static.msromantic.com/167517/sophia-tolli-wedding-dress-y21508-sidney.jpg" alt="Sophia Tolli Wedding Dress Y21508 Sidney" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71370-sophia-tolli-wedding-dress-y21508-sidney.html"><img src="//static.msromantic.com/167517/sophia-tolli-wedding-dress-y21508-sidney.jpg" alt="Sophia Tolli Wedding Dress Y21508 Sidney" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71370-sophia-tolli-wedding-dress-y21508-sidney.html"><img src="//static.msromantic.com/167516/sophia-tolli-wedding-dress-y21508-sidney.jpg" alt="Sophia Tolli Wedding Dress Y21508 Sidney" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71370-sophia-tolli-wedding-dress-y21508-sidney.html](https://www.readybrides.com/en/sophia-tolli/71370-sophia-tolli-wedding-dress-y21508-sidney.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71370-sophia-tolli-wedding-dress-y21508-sidney.html"><img src="//static.msromantic.com/167516/sophia-tolli-wedding-dress-y21508-sidney.jpg" alt="Sophia Tolli Wedding Dress Y21508 Sidney" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71370-sophia-tolli-wedding-dress-y21508-sidney.html](https://www.antebrands.com/en/sophia-tolli/71370-sophia-tolli-wedding-dress-y21508-sidney.html)

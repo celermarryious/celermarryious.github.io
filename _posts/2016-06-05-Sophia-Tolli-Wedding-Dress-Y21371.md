@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71386-sophia-tolli-wedding-dress-y21371.html"><img src="//static.msromantic.com/167549/sophia-tolli-wedding-dress-y21371.jpg" alt="Sophia Tolli Wedding Dress Y21371" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71386-sophia-tolli-wedding-dress-y21371.html"><img src="//static.msromantic.com/167549/sophia-tolli-wedding-dress-y21371.jpg" alt="Sophia Tolli Wedding Dress Y21371" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71386-sophia-tolli-wedding-dress-y21371.html](https://www.readybrides.com/en/sophia-tolli/71386-sophia-tolli-wedding-dress-y21371.html)
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71386-sophia-tolli-wedding-dress-y21371.html](https://www.antebrands.com/en/sophia-tolli/71386-sophia-tolli-wedding-dress-y21371.html)

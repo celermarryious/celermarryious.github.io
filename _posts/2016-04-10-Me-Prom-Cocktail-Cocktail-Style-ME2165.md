@@ -9,7 +9,7 @@ tags: [Me Prom Cocktail]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/me-prom-cocktail/71330-cocktail-style-me2165.html"><img src="//static.msromantic.com/167418/cocktail-style-me2165.jpg" alt="Cocktail Style ME2165" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/me-prom-cocktail/71330-cocktail-style-me2165.html"><img src="//static.msromantic.com/167418/cocktail-style-me2165.jpg" alt="Cocktail Style ME2165" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/me-prom-cocktail/71330-cocktail-style-me2165.html](https://www.readybrides.com/en/me-prom-cocktail/71330-cocktail-style-me2165.html)
+Buy it: [https://www.antebrands.com/en/me-prom-cocktail/71330-cocktail-style-me2165.html](https://www.antebrands.com/en/me-prom-cocktail/71330-cocktail-style-me2165.html)

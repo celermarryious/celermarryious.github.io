@@ -9,7 +9,7 @@ tags: [Sarah Janks Bridal Classic Styles]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68544-sarah-janks-french-lace-bolero-belt.html"><img src="//static.msromantic.com/160097/sarah-janks-french-lace-bolero-belt.jpg" alt="Sarah Janks French lace bolero - Belt" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68544-sarah-janks-french-lace-bolero-belt.html"><img src="//static.msromantic.com/160097/sarah-janks-french-lace-bolero-belt.jpg" alt="Sarah Janks French lace bolero - Belt" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68544-sarah-janks-french-lace-bolero-belt.html](https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68544-sarah-janks-french-lace-bolero-belt.html)
+Buy it: [https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68544-sarah-janks-french-lace-bolero-belt.html](https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68544-sarah-janks-french-lace-bolero-belt.html)

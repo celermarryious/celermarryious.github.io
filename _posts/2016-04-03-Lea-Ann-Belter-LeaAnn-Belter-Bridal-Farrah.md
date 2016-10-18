@@ -9,8 +9,8 @@ tags: [Lea Ann Belter]
 Just **$309.99**
 ###      
 <table><tr><td>BRANDS</td><td>Lea Ann Belter</td></tr></table>
-<a href="https://www.readybrides.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html"><img src="//static.msromantic.com/160028/lea-ann-belter-bridal-farrah.jpg" alt="Lea-Ann Belter Bridal Farrah" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html"><img src="//static.msromantic.com/160028/lea-ann-belter-bridal-farrah.jpg" alt="Lea-Ann Belter Bridal Farrah" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html"><img src="//static.msromantic.com/160029/lea-ann-belter-bridal-farrah.jpg" alt="Lea-Ann Belter Bridal Farrah" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html"><img src="//static.msromantic.com/160027/lea-ann-belter-bridal-farrah.jpg" alt="Lea-Ann Belter Bridal Farrah" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html](https://www.readybrides.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html)
+<!-- break --><a href="https://www.antebrands.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html"><img src="//static.msromantic.com/160029/lea-ann-belter-bridal-farrah.jpg" alt="Lea-Ann Belter Bridal Farrah" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html"><img src="//static.msromantic.com/160027/lea-ann-belter-bridal-farrah.jpg" alt="Lea-Ann Belter Bridal Farrah" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html](https://www.antebrands.com/en/lea-ann-belter/68521-lea-ann-belter-bridal-farrah.html)

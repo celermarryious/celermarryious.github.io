@@ -9,7 +9,7 @@ tags: [Adriana Alier Coleccion 2016]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71409-adriana-alier-jordi.html"><img src="//static.msromantic.com/167600/adriana-alier-jordi.jpg" alt="Adriana Alier JORDI" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71409-adriana-alier-jordi.html"><img src="//static.msromantic.com/167600/adriana-alier-jordi.jpg" alt="Adriana Alier JORDI" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71409-adriana-alier-jordi.html"><img src="//static.msromantic.com/167599/adriana-alier-jordi.jpg" alt="Adriana Alier JORDI" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adriana-alier-coleccion-2016/71409-adriana-alier-jordi.html](https://www.readybrides.com/en/adriana-alier-coleccion-2016/71409-adriana-alier-jordi.html)
+<!-- break --><a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71409-adriana-alier-jordi.html"><img src="//static.msromantic.com/167599/adriana-alier-jordi.jpg" alt="Adriana Alier JORDI" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adriana-alier-coleccion-2016/71409-adriana-alier-jordi.html](https://www.antebrands.com/en/adriana-alier-coleccion-2016/71409-adriana-alier-jordi.html)

@@ -9,7 +9,7 @@ tags: [Macis Design Flower Girl Dresses]
 Just **$179.99**
 ### 
 
-<a href="https://www.readybrides.com/en/macis-design-flower-girl-dresses/69926-love-u-more-communion-gown-t2013.html"><img src="//static.msromantic.com/164588/love-u-more-communion-gown-t2013.jpg" alt="LOVE U MORE Communion Gown T2013" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/macis-design-flower-girl-dresses/69926-love-u-more-communion-gown-t2013.html"><img src="//static.msromantic.com/164588/love-u-more-communion-gown-t2013.jpg" alt="LOVE U MORE Communion Gown T2013" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/macis-design-flower-girl-dresses/69926-love-u-more-communion-gown-t2013.html](https://www.readybrides.com/en/macis-design-flower-girl-dresses/69926-love-u-more-communion-gown-t2013.html)
+Buy it: [https://www.antebrands.com/en/macis-design-flower-girl-dresses/69926-love-u-more-communion-gown-t2013.html](https://www.antebrands.com/en/macis-design-flower-girl-dresses/69926-love-u-more-communion-gown-t2013.html)

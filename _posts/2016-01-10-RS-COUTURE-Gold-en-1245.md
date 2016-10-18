@@ -9,7 +9,7 @@ tags: [RS COUTURE Gold]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rs-couture-gold/67503-rs-couture-golden-1245.html"><img src="//static.msromantic.com/156658/rs-couture-golden-1245.jpg" alt="RS COUTURE golden 1245" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rs-couture-gold/67503-rs-couture-golden-1245.html"><img src="//static.msromantic.com/156658/rs-couture-golden-1245.jpg" alt="RS COUTURE golden 1245" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rs-couture-gold/67503-rs-couture-golden-1245.html](https://www.readybrides.com/en/rs-couture-gold/67503-rs-couture-golden-1245.html)
+Buy it: [https://www.antebrands.com/en/rs-couture-gold/67503-rs-couture-golden-1245.html](https://www.antebrands.com/en/rs-couture-gold/67503-rs-couture-golden-1245.html)

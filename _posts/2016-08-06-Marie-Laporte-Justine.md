@@ -9,8 +9,8 @@ tags: [Marie Laporte]
 Just **$329.99**
 ###      
 <table><tr><td>BRANDS</td><td>Marie Laporte</td></tr></table>
-<a href="https://www.readybrides.com/en/marie-laporte/67245-marie-laporte-justine.html"><img src="//static.msromantic.com/155921/marie-laporte-justine.jpg" alt="Marie Laporte Justine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marie-laporte/67245-marie-laporte-justine.html"><img src="//static.msromantic.com/155921/marie-laporte-justine.jpg" alt="Marie Laporte Justine" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/marie-laporte/67245-marie-laporte-justine.html"><img src="//static.msromantic.com/155922/marie-laporte-justine.jpg" alt="Marie Laporte Justine" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/marie-laporte/67245-marie-laporte-justine.html"><img src="//static.msromantic.com/155920/marie-laporte-justine.jpg" alt="Marie Laporte Justine" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/marie-laporte/67245-marie-laporte-justine.html](https://www.readybrides.com/en/marie-laporte/67245-marie-laporte-justine.html)
+<!-- break --><a href="https://www.antebrands.com/en/marie-laporte/67245-marie-laporte-justine.html"><img src="//static.msromantic.com/155922/marie-laporte-justine.jpg" alt="Marie Laporte Justine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marie-laporte/67245-marie-laporte-justine.html"><img src="//static.msromantic.com/155920/marie-laporte-justine.jpg" alt="Marie Laporte Justine" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/marie-laporte/67245-marie-laporte-justine.html](https://www.antebrands.com/en/marie-laporte/67245-marie-laporte-justine.html)

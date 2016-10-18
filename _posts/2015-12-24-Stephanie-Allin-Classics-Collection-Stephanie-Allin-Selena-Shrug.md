@@ -9,7 +9,7 @@ tags: [Stephanie Allin Classics Collection]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-classics-collection/68887-stephanie-allin-selena-shrug.html"><img src="//static.msromantic.com/160742/stephanie-allin-selena-shrug.jpg" alt="Stephanie Allin Selena Shrug" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-classics-collection/68887-stephanie-allin-selena-shrug.html"><img src="//static.msromantic.com/160742/stephanie-allin-selena-shrug.jpg" alt="Stephanie Allin Selena Shrug" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/stephanie-allin-classics-collection/68887-stephanie-allin-selena-shrug.html](https://www.readybrides.com/en/stephanie-allin-classics-collection/68887-stephanie-allin-selena-shrug.html)
+Buy it: [https://www.antebrands.com/en/stephanie-allin-classics-collection/68887-stephanie-allin-selena-shrug.html](https://www.antebrands.com/en/stephanie-allin-classics-collection/68887-stephanie-allin-selena-shrug.html)

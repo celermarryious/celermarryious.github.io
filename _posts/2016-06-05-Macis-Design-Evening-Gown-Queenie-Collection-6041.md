@@ -9,7 +9,7 @@ tags: [Macis Design Evening Gown]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/macis-design-evening-gown/69985-queenie-collection-6041.html"><img src="//static.msromantic.com/164647/queenie-collection-6041.jpg" alt="Queenie Collection 6041" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/macis-design-evening-gown/69985-queenie-collection-6041.html"><img src="//static.msromantic.com/164647/queenie-collection-6041.jpg" alt="Queenie Collection 6041" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/macis-design-evening-gown/69985-queenie-collection-6041.html](https://www.readybrides.com/en/macis-design-evening-gown/69985-queenie-collection-6041.html)
+Buy it: [https://www.antebrands.com/en/macis-design-evening-gown/69985-queenie-collection-6041.html](https://www.antebrands.com/en/macis-design-evening-gown/69985-queenie-collection-6041.html)

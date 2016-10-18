@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2014]
 Just **$219.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2014/66781-romantica-of-devon-flora.html"><img src="//static.msromantic.com/154603/romantica-of-devon-flora.jpg" alt="Romantica of Devon Flora" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2014/66781-romantica-of-devon-flora.html"><img src="//static.msromantic.com/154603/romantica-of-devon-flora.jpg" alt="Romantica of Devon Flora" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2014/66781-romantica-of-devon-flora.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2014/66781-romantica-of-devon-flora.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2014/66781-romantica-of-devon-flora.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2014/66781-romantica-of-devon-flora.html)

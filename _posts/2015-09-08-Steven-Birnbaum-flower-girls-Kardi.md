@@ -9,7 +9,7 @@ tags: [Steven Birnbaum flower girls]
 Just **$179.99**
 ### 
 
-<a href="https://www.readybrides.com/en/steven-birnbaum-flower-girls/67846-kardi.html"><img src="//static.msromantic.com/157494/kardi.jpg" alt="Kardi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/steven-birnbaum-flower-girls/67846-kardi.html"><img src="//static.msromantic.com/157494/kardi.jpg" alt="Kardi" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/steven-birnbaum-flower-girls/67846-kardi.html](https://www.readybrides.com/en/steven-birnbaum-flower-girls/67846-kardi.html)
+Buy it: [https://www.antebrands.com/en/steven-birnbaum-flower-girls/67846-kardi.html](https://www.antebrands.com/en/steven-birnbaum-flower-girls/67846-kardi.html)

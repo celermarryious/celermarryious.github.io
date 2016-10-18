@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica 2011]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2011/66672-romantica-of-devon-constance.html"><img src="//static.msromantic.com/154461/romantica-of-devon-constance.jpg" alt="Romantica of Devon Constance" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2011/66672-romantica-of-devon-constance.html"><img src="//static.msromantic.com/154461/romantica-of-devon-constance.jpg" alt="Romantica of Devon Constance" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-2011/66672-romantica-of-devon-constance.html](https://www.readybrides.com/en/romantica-of-devon-romantica-2011/66672-romantica-of-devon-constance.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-2011/66672-romantica-of-devon-constance.html](https://www.antebrands.com/en/romantica-of-devon-romantica-2011/66672-romantica-of-devon-constance.html)

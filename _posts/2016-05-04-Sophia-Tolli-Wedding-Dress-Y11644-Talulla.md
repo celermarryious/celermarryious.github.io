@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71354-sophia-tolli-wedding-dress-y11644-talulla.html"><img src="//static.msromantic.com/167475/sophia-tolli-wedding-dress-y11644-talulla.jpg" alt="Sophia Tolli Wedding Dress Y11644 Talulla" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71354-sophia-tolli-wedding-dress-y11644-talulla.html"><img src="//static.msromantic.com/167475/sophia-tolli-wedding-dress-y11644-talulla.jpg" alt="Sophia Tolli Wedding Dress Y11644 Talulla" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71354-sophia-tolli-wedding-dress-y11644-talulla.html"><img src="//static.msromantic.com/167474/sophia-tolli-wedding-dress-y11644-talulla.jpg" alt="Sophia Tolli Wedding Dress Y11644 Talulla" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71354-sophia-tolli-wedding-dress-y11644-talulla.html](https://www.readybrides.com/en/sophia-tolli/71354-sophia-tolli-wedding-dress-y11644-talulla.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71354-sophia-tolli-wedding-dress-y11644-talulla.html"><img src="//static.msromantic.com/167474/sophia-tolli-wedding-dress-y11644-talulla.jpg" alt="Sophia Tolli Wedding Dress Y11644 Talulla" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71354-sophia-tolli-wedding-dress-y11644-talulla.html](https://www.antebrands.com/en/sophia-tolli/71354-sophia-tolli-wedding-dress-y11644-talulla.html)

@@ -9,8 +9,8 @@ tags: [Romantica of Devon Pure Bridal 2016]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html"><img src="//static.msromantic.com/154702/romantica-of-devon-elka.jpg" alt="Romantica of Devon Elka" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html"><img src="//static.msromantic.com/154702/romantica-of-devon-elka.jpg" alt="Romantica of Devon Elka" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html"><img src="//static.msromantic.com/154704/romantica-of-devon-elka.jpg" alt="Romantica of Devon Elka" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html"><img src="//static.msromantic.com/154700/romantica-of-devon-elka.jpg" alt="Romantica of Devon Elka" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html](https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html)
+<!-- break --><a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html"><img src="//static.msromantic.com/154704/romantica-of-devon-elka.jpg" alt="Romantica of Devon Elka" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html"><img src="//static.msromantic.com/154700/romantica-of-devon-elka.jpg" alt="Romantica of Devon Elka" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html](https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66830-romantica-of-devon-elka.html)

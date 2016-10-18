@@ -9,7 +9,7 @@ tags: [Saison Blanche Bridesmaids]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/saison-blanche-bridesmaids/68197-saison-blanche-bridesmaids-style-sb2206.html"><img src="//static.msromantic.com/158969/saison-blanche-bridesmaids-style-sb2206.jpg" alt="Saison Blanche Bridesmaids Style SB2206" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/saison-blanche-bridesmaids/68197-saison-blanche-bridesmaids-style-sb2206.html"><img src="//static.msromantic.com/158969/saison-blanche-bridesmaids-style-sb2206.jpg" alt="Saison Blanche Bridesmaids Style SB2206" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/saison-blanche-bridesmaids/68197-saison-blanche-bridesmaids-style-sb2206.html](https://www.readybrides.com/en/saison-blanche-bridesmaids/68197-saison-blanche-bridesmaids-style-sb2206.html)
+Buy it: [https://www.antebrands.com/en/saison-blanche-bridesmaids/68197-saison-blanche-bridesmaids-style-sb2206.html](https://www.antebrands.com/en/saison-blanche-bridesmaids/68197-saison-blanche-bridesmaids-style-sb2206.html)

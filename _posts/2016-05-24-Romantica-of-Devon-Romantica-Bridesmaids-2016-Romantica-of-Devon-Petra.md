@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2016]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66704-romantica-of-devon-petra.html"><img src="//static.msromantic.com/154503/romantica-of-devon-petra.jpg" alt="Romantica of Devon Petra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66704-romantica-of-devon-petra.html"><img src="//static.msromantic.com/154503/romantica-of-devon-petra.jpg" alt="Romantica of Devon Petra" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66704-romantica-of-devon-petra.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66704-romantica-of-devon-petra.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66704-romantica-of-devon-petra.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66704-romantica-of-devon-petra.html)

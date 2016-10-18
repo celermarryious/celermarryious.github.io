@@ -9,8 +9,8 @@ tags: [Adriana Alier Coleccion 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html"><img src="//static.msromantic.com/167734/adriana-alier-jordania.jpg" alt="Adriana Alier JORDANIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html"><img src="//static.msromantic.com/167734/adriana-alier-jordania.jpg" alt="Adriana Alier JORDANIA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html"><img src="//static.msromantic.com/167735/adriana-alier-jordania.jpg" alt="Adriana Alier JORDANIA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html"><img src="//static.msromantic.com/167733/adriana-alier-jordania.jpg" alt="Adriana Alier JORDANIA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html](https://www.readybrides.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html)
+<!-- break --><a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html"><img src="//static.msromantic.com/167735/adriana-alier-jordania.jpg" alt="Adriana Alier JORDANIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html"><img src="//static.msromantic.com/167733/adriana-alier-jordania.jpg" alt="Adriana Alier JORDANIA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html](https://www.antebrands.com/en/adriana-alier-coleccion-2016/71474-adriana-alier-jordania.html)

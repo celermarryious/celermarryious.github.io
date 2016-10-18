@@ -9,8 +9,8 @@ tags: [Madeline Gardner New York]
 Just **$369.99**
 ###      
 <table><tr><td>BRANDS</td><td>Madeline Gardner New York</td></tr></table>
-<a href="https://www.readybrides.com/en/madeline-gardner-new-york/67632-neda-51121.html"><img src="//static.msromantic.com/156883/neda-51121.jpg" alt="NEDA 51121" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madeline-gardner-new-york/67632-neda-51121.html"><img src="//static.msromantic.com/156883/neda-51121.jpg" alt="NEDA 51121" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/madeline-gardner-new-york/67632-neda-51121.html"><img src="//static.msromantic.com/156884/neda-51121.jpg" alt="NEDA 51121" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/madeline-gardner-new-york/67632-neda-51121.html"><img src="//static.msromantic.com/156882/neda-51121.jpg" alt="NEDA 51121" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/madeline-gardner-new-york/67632-neda-51121.html](https://www.readybrides.com/en/madeline-gardner-new-york/67632-neda-51121.html)
+<!-- break --><a href="https://www.antebrands.com/en/madeline-gardner-new-york/67632-neda-51121.html"><img src="//static.msromantic.com/156884/neda-51121.jpg" alt="NEDA 51121" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madeline-gardner-new-york/67632-neda-51121.html"><img src="//static.msromantic.com/156882/neda-51121.jpg" alt="NEDA 51121" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/madeline-gardner-new-york/67632-neda-51121.html](https://www.antebrands.com/en/madeline-gardner-new-york/67632-neda-51121.html)

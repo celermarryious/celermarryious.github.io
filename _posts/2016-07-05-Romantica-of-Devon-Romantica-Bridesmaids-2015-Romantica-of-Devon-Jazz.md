@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2015]
 Just **$179.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66746-romantica-of-devon-jazz.html"><img src="//static.msromantic.com/154558/romantica-of-devon-jazz.jpg" alt="Romantica of Devon Jazz" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66746-romantica-of-devon-jazz.html"><img src="//static.msromantic.com/154558/romantica-of-devon-jazz.jpg" alt="Romantica of Devon Jazz" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66746-romantica-of-devon-jazz.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66746-romantica-of-devon-jazz.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66746-romantica-of-devon-jazz.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66746-romantica-of-devon-jazz.html)

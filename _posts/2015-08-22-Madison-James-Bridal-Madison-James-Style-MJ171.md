@@ -9,8 +9,8 @@ tags: [Madison James Bridal]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/madison-james-bridal/65961-madison-james-style-mj171.html"><img src="//static.msromantic.com/152196/madison-james-style-mj171.jpg" alt="Madison James Style MJ171" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madison-james-bridal/65961-madison-james-style-mj171.html"><img src="//static.msromantic.com/152196/madison-james-style-mj171.jpg" alt="Madison James Style MJ171" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/madison-james-bridal/65961-madison-james-style-mj171.html"><img src="//static.msromantic.com/152197/madison-james-style-mj171.jpg" alt="Madison James Style MJ171" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/madison-james-bridal/65961-madison-james-style-mj171.html"><img src="//static.msromantic.com/152195/madison-james-style-mj171.jpg" alt="Madison James Style MJ171" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/madison-james-bridal/65961-madison-james-style-mj171.html](https://www.readybrides.com/en/madison-james-bridal/65961-madison-james-style-mj171.html)
+<!-- break --><a href="https://www.antebrands.com/en/madison-james-bridal/65961-madison-james-style-mj171.html"><img src="//static.msromantic.com/152197/madison-james-style-mj171.jpg" alt="Madison James Style MJ171" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madison-james-bridal/65961-madison-james-style-mj171.html"><img src="//static.msromantic.com/152195/madison-james-style-mj171.jpg" alt="Madison James Style MJ171" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/madison-james-bridal/65961-madison-james-style-mj171.html](https://www.antebrands.com/en/madison-james-bridal/65961-madison-james-style-mj171.html)

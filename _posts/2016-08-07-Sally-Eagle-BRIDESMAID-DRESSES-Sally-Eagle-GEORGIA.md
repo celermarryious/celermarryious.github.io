@@ -9,7 +9,7 @@ tags: [Sally Eagle BRIDESMAID DRESSES]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sally-eagle-bridesmaid-dresses/67713-sally-eagle-georgia.html"><img src="//static.msromantic.com/157128/sally-eagle-georgia.jpg" alt="Sally Eagle GEORGIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sally-eagle-bridesmaid-dresses/67713-sally-eagle-georgia.html"><img src="//static.msromantic.com/157128/sally-eagle-georgia.jpg" alt="Sally Eagle GEORGIA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sally-eagle-bridesmaid-dresses/67713-sally-eagle-georgia.html"><img src="//static.msromantic.com/157127/sally-eagle-georgia.jpg" alt="Sally Eagle GEORGIA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sally-eagle-bridesmaid-dresses/67713-sally-eagle-georgia.html](https://www.readybrides.com/en/sally-eagle-bridesmaid-dresses/67713-sally-eagle-georgia.html)
+<!-- break --><a href="https://www.antebrands.com/en/sally-eagle-bridesmaid-dresses/67713-sally-eagle-georgia.html"><img src="//static.msromantic.com/157127/sally-eagle-georgia.jpg" alt="Sally Eagle GEORGIA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sally-eagle-bridesmaid-dresses/67713-sally-eagle-georgia.html](https://www.antebrands.com/en/sally-eagle-bridesmaid-dresses/67713-sally-eagle-georgia.html)

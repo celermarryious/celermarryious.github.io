@@ -9,7 +9,7 @@ tags: [Romantica of Devon Pure Bridesmaids]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridesmaids/66994-romantica-of-devon-pbm1121.html"><img src="//static.msromantic.com/155182/romantica-of-devon-pbm1121.jpg" alt="Romantica of Devon PBM1121" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridesmaids/66994-romantica-of-devon-pbm1121.html"><img src="//static.msromantic.com/155182/romantica-of-devon-pbm1121.jpg" alt="Romantica of Devon PBM1121" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-pure-bridesmaids/66994-romantica-of-devon-pbm1121.html](https://www.readybrides.com/en/romantica-of-devon-pure-bridesmaids/66994-romantica-of-devon-pbm1121.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-pure-bridesmaids/66994-romantica-of-devon-pbm1121.html](https://www.antebrands.com/en/romantica-of-devon-pure-bridesmaids/66994-romantica-of-devon-pbm1121.html)

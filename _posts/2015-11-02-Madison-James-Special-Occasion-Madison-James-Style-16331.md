@@ -9,8 +9,8 @@ tags: [Madison James Special Occasion]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html"><img src="//static.msromantic.com/152522/madison-james-style-16-331.jpg" alt="Madison James Style 16-331" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html"><img src="//static.msromantic.com/152522/madison-james-style-16-331.jpg" alt="Madison James Style 16-331" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html"><img src="//static.msromantic.com/152523/madison-james-style-16-331.jpg" alt="Madison James Style 16-331" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html"><img src="//static.msromantic.com/152521/madison-james-style-16-331.jpg" alt="Madison James Style 16-331" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html](https://www.readybrides.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html)
+<!-- break --><a href="https://www.antebrands.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html"><img src="//static.msromantic.com/152523/madison-james-style-16-331.jpg" alt="Madison James Style 16-331" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html"><img src="//static.msromantic.com/152521/madison-james-style-16-331.jpg" alt="Madison James Style 16-331" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html](https://www.antebrands.com/en/madison-james-special-occasion/66033-madison-james-style-16-331.html)

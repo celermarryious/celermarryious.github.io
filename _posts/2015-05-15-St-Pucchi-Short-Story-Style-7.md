@@ -9,7 +9,7 @@ tags: [St. Pucchi Short Story]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/st-pucchi-short-story/68664-st-pucchi-short-story-style-7.html"><img src="//static.msromantic.com/160309/st-pucchi-short-story-style-7.jpg" alt="St. Pucchi Short Story Style 7" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/st-pucchi-short-story/68664-st-pucchi-short-story-style-7.html"><img src="//static.msromantic.com/160309/st-pucchi-short-story-style-7.jpg" alt="St. Pucchi Short Story Style 7" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/st-pucchi-short-story/68664-st-pucchi-short-story-style-7.html"><img src="//static.msromantic.com/160308/st-pucchi-short-story-style-7.jpg" alt="St. Pucchi Short Story Style 7" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/st-pucchi-short-story/68664-st-pucchi-short-story-style-7.html](https://www.readybrides.com/en/st-pucchi-short-story/68664-st-pucchi-short-story-style-7.html)
+<!-- break --><a href="https://www.antebrands.com/en/st-pucchi-short-story/68664-st-pucchi-short-story-style-7.html"><img src="//static.msromantic.com/160308/st-pucchi-short-story-style-7.jpg" alt="St. Pucchi Short Story Style 7" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/st-pucchi-short-story/68664-st-pucchi-short-story-style-7.html](https://www.antebrands.com/en/st-pucchi-short-story/68664-st-pucchi-short-story-style-7.html)

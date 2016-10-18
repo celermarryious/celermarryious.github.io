@@ -9,8 +9,8 @@ tags: [Madeline Gardner New York]
 Just **$379.99**
 ###      
 <table><tr><td>BRANDS</td><td>Madeline Gardner New York</td></tr></table>
-<a href="https://www.readybrides.com/en/madeline-gardner-new-york/67621-nina-51110.html"><img src="//static.msromantic.com/156850/nina-51110.jpg" alt="NINA 51110" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madeline-gardner-new-york/67621-nina-51110.html"><img src="//static.msromantic.com/156850/nina-51110.jpg" alt="NINA 51110" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/madeline-gardner-new-york/67621-nina-51110.html"><img src="//static.msromantic.com/156851/nina-51110.jpg" alt="NINA 51110" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/madeline-gardner-new-york/67621-nina-51110.html"><img src="//static.msromantic.com/156849/nina-51110.jpg" alt="NINA 51110" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/madeline-gardner-new-york/67621-nina-51110.html](https://www.readybrides.com/en/madeline-gardner-new-york/67621-nina-51110.html)
+<!-- break --><a href="https://www.antebrands.com/en/madeline-gardner-new-york/67621-nina-51110.html"><img src="//static.msromantic.com/156851/nina-51110.jpg" alt="NINA 51110" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/madeline-gardner-new-york/67621-nina-51110.html"><img src="//static.msromantic.com/156849/nina-51110.jpg" alt="NINA 51110" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/madeline-gardner-new-york/67621-nina-51110.html](https://www.antebrands.com/en/madeline-gardner-new-york/67621-nina-51110.html)

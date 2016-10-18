@@ -9,7 +9,7 @@ tags: [Kenneth Winston Bridesmaids]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kenneth-winston-bridesmaids/67125-colour-by-kenneth-winston-5201l.html"><img src="//static.msromantic.com/155523/colour-by-kenneth-winston-5201l.jpg" alt="Colour by Kenneth Winston 5201L" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-winston-bridesmaids/67125-colour-by-kenneth-winston-5201l.html"><img src="//static.msromantic.com/155523/colour-by-kenneth-winston-5201l.jpg" alt="Colour by Kenneth Winston 5201L" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kenneth-winston-bridesmaids/67125-colour-by-kenneth-winston-5201l.html"><img src="//static.msromantic.com/155522/colour-by-kenneth-winston-5201l.jpg" alt="Colour by Kenneth Winston 5201L" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kenneth-winston-bridesmaids/67125-colour-by-kenneth-winston-5201l.html](https://www.readybrides.com/en/kenneth-winston-bridesmaids/67125-colour-by-kenneth-winston-5201l.html)
+<!-- break --><a href="https://www.antebrands.com/en/kenneth-winston-bridesmaids/67125-colour-by-kenneth-winston-5201l.html"><img src="//static.msromantic.com/155522/colour-by-kenneth-winston-5201l.jpg" alt="Colour by Kenneth Winston 5201L" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kenneth-winston-bridesmaids/67125-colour-by-kenneth-winston-5201l.html](https://www.antebrands.com/en/kenneth-winston-bridesmaids/67125-colour-by-kenneth-winston-5201l.html)

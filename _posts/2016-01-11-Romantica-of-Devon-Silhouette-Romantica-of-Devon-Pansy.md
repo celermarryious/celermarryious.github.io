@@ -9,7 +9,7 @@ tags: [Romantica of Devon Silhouette]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-silhouette/67037-romantica-of-devon-pansy.html"><img src="//static.msromantic.com/155276/romantica-of-devon-pansy.jpg" alt="Romantica of Devon Pansy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-silhouette/67037-romantica-of-devon-pansy.html"><img src="//static.msromantic.com/155276/romantica-of-devon-pansy.jpg" alt="Romantica of Devon Pansy" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-silhouette/67037-romantica-of-devon-pansy.html](https://www.readybrides.com/en/romantica-of-devon-silhouette/67037-romantica-of-devon-pansy.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-silhouette/67037-romantica-of-devon-pansy.html](https://www.antebrands.com/en/romantica-of-devon-silhouette/67037-romantica-of-devon-pansy.html)

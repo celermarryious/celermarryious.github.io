@@ -9,7 +9,7 @@ tags: [Romantica of Devon Silhouette]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-silhouette/67026-romantica-of-devon-honeysuckle.html"><img src="//static.msromantic.com/155246/romantica-of-devon-honeysuckle.jpg" alt="Romantica of Devon Honeysuckle" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-silhouette/67026-romantica-of-devon-honeysuckle.html"><img src="//static.msromantic.com/155246/romantica-of-devon-honeysuckle.jpg" alt="Romantica of Devon Honeysuckle" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-silhouette/67026-romantica-of-devon-honeysuckle.html](https://www.readybrides.com/en/romantica-of-devon-silhouette/67026-romantica-of-devon-honeysuckle.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-silhouette/67026-romantica-of-devon-honeysuckle.html](https://www.antebrands.com/en/romantica-of-devon-silhouette/67026-romantica-of-devon-honeysuckle.html)

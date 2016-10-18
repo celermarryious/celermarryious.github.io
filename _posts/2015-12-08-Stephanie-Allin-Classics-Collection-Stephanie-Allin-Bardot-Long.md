@@ -9,7 +9,7 @@ tags: [Stephanie Allin Classics Collection]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-classics-collection/68871-stephanie-allin-bardot-long.html"><img src="//static.msromantic.com/160712/stephanie-allin-bardot-long.jpg" alt="Stephanie Allin Bardot Long" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-classics-collection/68871-stephanie-allin-bardot-long.html"><img src="//static.msromantic.com/160712/stephanie-allin-bardot-long.jpg" alt="Stephanie Allin Bardot Long" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/stephanie-allin-classics-collection/68871-stephanie-allin-bardot-long.html](https://www.readybrides.com/en/stephanie-allin-classics-collection/68871-stephanie-allin-bardot-long.html)
+Buy it: [https://www.antebrands.com/en/stephanie-allin-classics-collection/68871-stephanie-allin-bardot-long.html](https://www.antebrands.com/en/stephanie-allin-classics-collection/68871-stephanie-allin-bardot-long.html)

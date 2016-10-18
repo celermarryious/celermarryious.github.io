@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71355-sophia-tolli-wedding-dress-y11645-dido.html"><img src="//static.msromantic.com/167478/sophia-tolli-wedding-dress-y11645-dido.jpg" alt="Sophia Tolli Wedding Dress Y11645 Dido" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71355-sophia-tolli-wedding-dress-y11645-dido.html"><img src="//static.msromantic.com/167478/sophia-tolli-wedding-dress-y11645-dido.jpg" alt="Sophia Tolli Wedding Dress Y11645 Dido" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71355-sophia-tolli-wedding-dress-y11645-dido.html"><img src="//static.msromantic.com/167477/sophia-tolli-wedding-dress-y11645-dido.jpg" alt="Sophia Tolli Wedding Dress Y11645 Dido" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71355-sophia-tolli-wedding-dress-y11645-dido.html](https://www.readybrides.com/en/sophia-tolli/71355-sophia-tolli-wedding-dress-y11645-dido.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71355-sophia-tolli-wedding-dress-y11645-dido.html"><img src="//static.msromantic.com/167477/sophia-tolli-wedding-dress-y11645-dido.jpg" alt="Sophia Tolli Wedding Dress Y11645 Dido" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71355-sophia-tolli-wedding-dress-y11645-dido.html](https://www.antebrands.com/en/sophia-tolli/71355-sophia-tolli-wedding-dress-y11645-dido.html)

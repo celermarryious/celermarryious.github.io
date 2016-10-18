@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2016]
 Just **$219.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66710-romantica-of-devon-roma.html"><img src="//static.msromantic.com/154512/romantica-of-devon-roma.jpg" alt="Romantica of Devon Roma" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66710-romantica-of-devon-roma.html"><img src="//static.msromantic.com/154512/romantica-of-devon-roma.jpg" alt="Romantica of Devon Roma" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66710-romantica-of-devon-roma.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66710-romantica-of-devon-roma.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66710-romantica-of-devon-roma.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66710-romantica-of-devon-roma.html)

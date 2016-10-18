@@ -9,7 +9,7 @@ tags: [Macis Design Evening Gown]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/macis-design-evening-gown/69946-macis-couture-dress-8062.html"><img src="//static.msromantic.com/164608/macis-couture-dress-8062.jpg" alt="Macis Couture Dress 8062" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/macis-design-evening-gown/69946-macis-couture-dress-8062.html"><img src="//static.msromantic.com/164608/macis-couture-dress-8062.jpg" alt="Macis Couture Dress 8062" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/macis-design-evening-gown/69946-macis-couture-dress-8062.html](https://www.readybrides.com/en/macis-design-evening-gown/69946-macis-couture-dress-8062.html)
+Buy it: [https://www.antebrands.com/en/macis-design-evening-gown/69946-macis-couture-dress-8062.html](https://www.antebrands.com/en/macis-design-evening-gown/69946-macis-couture-dress-8062.html)

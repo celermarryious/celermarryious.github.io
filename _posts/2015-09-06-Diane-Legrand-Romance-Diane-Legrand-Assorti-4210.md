@@ -9,8 +9,8 @@ tags: [Diane Legrand Romance]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html"><img src="//static.msromantic.com/163961/diane-legrand-assorti-4210.jpg" alt="Diane Legrand Assorti 4210" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html"><img src="//static.msromantic.com/163961/diane-legrand-assorti-4210.jpg" alt="Diane Legrand Assorti 4210" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html"><img src="//static.msromantic.com/163962/diane-legrand-assorti-4210.jpg" alt="Diane Legrand Assorti 4210" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html"><img src="//static.msromantic.com/163960/diane-legrand-assorti-4210.jpg" alt="Diane Legrand Assorti 4210" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html](https://www.readybrides.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html)
+<!-- break --><a href="https://www.antebrands.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html"><img src="//static.msromantic.com/163962/diane-legrand-assorti-4210.jpg" alt="Diane Legrand Assorti 4210" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html"><img src="//static.msromantic.com/163960/diane-legrand-assorti-4210.jpg" alt="Diane Legrand Assorti 4210" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html](https://www.antebrands.com/en/diane-legrand-romance/69712-diane-legrand-assorti-4210.html)

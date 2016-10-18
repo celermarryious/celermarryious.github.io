@@ -9,7 +9,7 @@ tags: [Me Prom]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/me-prom/71313-me-prom-style-rs2263.html"><img src="//static.msromantic.com/167372/me-prom-style-rs2263.jpg" alt="Me Prom Style RS2263" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/me-prom/71313-me-prom-style-rs2263.html"><img src="//static.msromantic.com/167372/me-prom-style-rs2263.jpg" alt="Me Prom Style RS2263" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/me-prom/71313-me-prom-style-rs2263.html](https://www.readybrides.com/en/me-prom/71313-me-prom-style-rs2263.html)
+Buy it: [https://www.antebrands.com/en/me-prom/71313-me-prom-style-rs2263.html](https://www.antebrands.com/en/me-prom/71313-me-prom-style-rs2263.html)

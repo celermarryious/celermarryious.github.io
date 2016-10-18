@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2013]
 Just **$179.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2013/66800-romantica-of-devon-lexi.html"><img src="//static.msromantic.com/154631/romantica-of-devon-lexi.jpg" alt="Romantica of Devon Lexi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2013/66800-romantica-of-devon-lexi.html"><img src="//static.msromantic.com/154631/romantica-of-devon-lexi.jpg" alt="Romantica of Devon Lexi" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2013/66800-romantica-of-devon-lexi.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2013/66800-romantica-of-devon-lexi.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2013/66800-romantica-of-devon-lexi.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2013/66800-romantica-of-devon-lexi.html)

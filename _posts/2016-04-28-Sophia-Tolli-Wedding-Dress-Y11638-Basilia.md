@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71348-sophia-tolli-wedding-dress-y11638-basilia.html"><img src="//static.msromantic.com/167463/sophia-tolli-wedding-dress-y11638-basilia.jpg" alt="Sophia Tolli Wedding Dress Y11638 Basilia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71348-sophia-tolli-wedding-dress-y11638-basilia.html"><img src="//static.msromantic.com/167463/sophia-tolli-wedding-dress-y11638-basilia.jpg" alt="Sophia Tolli Wedding Dress Y11638 Basilia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71348-sophia-tolli-wedding-dress-y11638-basilia.html"><img src="//static.msromantic.com/167462/sophia-tolli-wedding-dress-y11638-basilia.jpg" alt="Sophia Tolli Wedding Dress Y11638 Basilia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71348-sophia-tolli-wedding-dress-y11638-basilia.html](https://www.readybrides.com/en/sophia-tolli/71348-sophia-tolli-wedding-dress-y11638-basilia.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71348-sophia-tolli-wedding-dress-y11638-basilia.html"><img src="//static.msromantic.com/167462/sophia-tolli-wedding-dress-y11638-basilia.jpg" alt="Sophia Tolli Wedding Dress Y11638 Basilia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71348-sophia-tolli-wedding-dress-y11638-basilia.html](https://www.antebrands.com/en/sophia-tolli/71348-sophia-tolli-wedding-dress-y11638-basilia.html)

@@ -9,7 +9,7 @@ tags: [Blumarine]
 Just **$349.99**
 ###      
 <table><tr><td>BRANDS</td><td>Blumarine</td></tr></table>
-<a href="https://www.readybrides.com/en/blumarine/68958-blumarine-modello-6669s.html"><img src="//static.msromantic.com/160883/blumarine-modello-6669s.jpg" alt="Blumarine Modello 6669S" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/blumarine/68958-blumarine-modello-6669s.html"><img src="//static.msromantic.com/160883/blumarine-modello-6669s.jpg" alt="Blumarine Modello 6669S" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/blumarine/68958-blumarine-modello-6669s.html](https://www.readybrides.com/en/blumarine/68958-blumarine-modello-6669s.html)
+Buy it: [https://www.antebrands.com/en/blumarine/68958-blumarine-modello-6669s.html](https://www.antebrands.com/en/blumarine/68958-blumarine-modello-6669s.html)

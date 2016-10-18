@@ -9,8 +9,8 @@ tags: [Diane Legrand Assorti]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html"><img src="//static.msromantic.com/164040/diane-legrand-assorti-4311.jpg" alt="Diane Legrand Assorti 4311" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html"><img src="//static.msromantic.com/164040/diane-legrand-assorti-4311.jpg" alt="Diane Legrand Assorti 4311" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html"><img src="//static.msromantic.com/164041/diane-legrand-assorti-4311.jpg" alt="Diane Legrand Assorti 4311" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html"><img src="//static.msromantic.com/164039/diane-legrand-assorti-4311.jpg" alt="Diane Legrand Assorti 4311" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html](https://www.readybrides.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html)
+<!-- break --><a href="https://www.antebrands.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html"><img src="//static.msromantic.com/164041/diane-legrand-assorti-4311.jpg" alt="Diane Legrand Assorti 4311" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html"><img src="//static.msromantic.com/164039/diane-legrand-assorti-4311.jpg" alt="Diane Legrand Assorti 4311" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html](https://www.antebrands.com/en/diane-legrand-assorti/69737-diane-legrand-assorti-4311.html)

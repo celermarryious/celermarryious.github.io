@@ -9,8 +9,8 @@ tags: [Kenneth Winston Bridesmaids]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html"><img src="//static.msromantic.com/155550/colour-by-kenneth-winston-5174l.jpg" alt="Colour by Kenneth Winston 5174L" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html"><img src="//static.msromantic.com/155550/colour-by-kenneth-winston-5174l.jpg" alt="Colour by Kenneth Winston 5174L" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html"><img src="//static.msromantic.com/155551/colour-by-kenneth-winston-5174l.jpg" alt="Colour by Kenneth Winston 5174L" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html"><img src="//static.msromantic.com/155549/colour-by-kenneth-winston-5174l.jpg" alt="Colour by Kenneth Winston 5174L" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html](https://www.readybrides.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html)
+<!-- break --><a href="https://www.antebrands.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html"><img src="//static.msromantic.com/155551/colour-by-kenneth-winston-5174l.jpg" alt="Colour by Kenneth Winston 5174L" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html"><img src="//static.msromantic.com/155549/colour-by-kenneth-winston-5174l.jpg" alt="Colour by Kenneth Winston 5174L" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html](https://www.antebrands.com/en/kenneth-winston-bridesmaids/67139-colour-by-kenneth-winston-5174l.html)

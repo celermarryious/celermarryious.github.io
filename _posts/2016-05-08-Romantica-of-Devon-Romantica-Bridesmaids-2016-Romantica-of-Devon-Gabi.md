@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2016]
 Just **$209.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66688-romantica-of-devon-gabi.html"><img src="//static.msromantic.com/154482/romantica-of-devon-gabi.jpg" alt="Romantica of Devon Gabi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66688-romantica-of-devon-gabi.html"><img src="//static.msromantic.com/154482/romantica-of-devon-gabi.jpg" alt="Romantica of Devon Gabi" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66688-romantica-of-devon-gabi.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66688-romantica-of-devon-gabi.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66688-romantica-of-devon-gabi.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66688-romantica-of-devon-gabi.html)

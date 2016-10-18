@@ -9,7 +9,7 @@ tags: [Adriana Alier Coleccion 2015]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2015/71501-adriana-alier-8n122-basilea.html"><img src="//static.msromantic.com/167790/adriana-alier-8n122-basilea.jpg" alt="Adriana Alier 8N122 BASILEA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2015/71501-adriana-alier-8n122-basilea.html"><img src="//static.msromantic.com/167790/adriana-alier-8n122-basilea.jpg" alt="Adriana Alier 8N122 BASILEA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adriana-alier-coleccion-2015/71501-adriana-alier-8n122-basilea.html"><img src="//static.msromantic.com/167789/adriana-alier-8n122-basilea.jpg" alt="Adriana Alier 8N122 BASILEA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adriana-alier-coleccion-2015/71501-adriana-alier-8n122-basilea.html](https://www.readybrides.com/en/adriana-alier-coleccion-2015/71501-adriana-alier-8n122-basilea.html)
+<!-- break --><a href="https://www.antebrands.com/en/adriana-alier-coleccion-2015/71501-adriana-alier-8n122-basilea.html"><img src="//static.msromantic.com/167789/adriana-alier-8n122-basilea.jpg" alt="Adriana Alier 8N122 BASILEA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adriana-alier-coleccion-2015/71501-adriana-alier-8n122-basilea.html](https://www.antebrands.com/en/adriana-alier-coleccion-2015/71501-adriana-alier-8n122-basilea.html)

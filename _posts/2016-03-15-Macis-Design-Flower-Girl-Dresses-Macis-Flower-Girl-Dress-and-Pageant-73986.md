@@ -9,7 +9,7 @@ tags: [Macis Design Flower Girl Dresses]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/macis-design-flower-girl-dresses/69903-macis-flower-girl-dress-and-pageant-73986.html"><img src="//static.msromantic.com/164565/macis-flower-girl-dress-and-pageant-73986.jpg" alt="Macis Flower Girl Dress and Pageant 73986" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/macis-design-flower-girl-dresses/69903-macis-flower-girl-dress-and-pageant-73986.html"><img src="//static.msromantic.com/164565/macis-flower-girl-dress-and-pageant-73986.jpg" alt="Macis Flower Girl Dress and Pageant 73986" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/macis-design-flower-girl-dresses/69903-macis-flower-girl-dress-and-pageant-73986.html](https://www.readybrides.com/en/macis-design-flower-girl-dresses/69903-macis-flower-girl-dress-and-pageant-73986.html)
+Buy it: [https://www.antebrands.com/en/macis-design-flower-girl-dresses/69903-macis-flower-girl-dress-and-pageant-73986.html](https://www.antebrands.com/en/macis-design-flower-girl-dresses/69903-macis-flower-girl-dress-and-pageant-73986.html)

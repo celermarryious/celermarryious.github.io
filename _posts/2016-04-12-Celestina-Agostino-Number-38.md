@@ -9,7 +9,7 @@ tags: [Celestina Agostino]
 Just **$349.99**
 ###      
 <table><tr><td>BRANDS</td><td>Celestina Agostino</td></tr></table>
-<a href="https://www.readybrides.com/en/celestina-agostino/67596-celestina-agostino-number-38.html"><img src="//static.msromantic.com/156787/celestina-agostino-number-38.jpg" alt="Celestina Agostino Number 38" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/celestina-agostino/67596-celestina-agostino-number-38.html"><img src="//static.msromantic.com/156787/celestina-agostino-number-38.jpg" alt="Celestina Agostino Number 38" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/celestina-agostino/67596-celestina-agostino-number-38.html](https://www.readybrides.com/en/celestina-agostino/67596-celestina-agostino-number-38.html)
+Buy it: [https://www.antebrands.com/en/celestina-agostino/67596-celestina-agostino-number-38.html](https://www.antebrands.com/en/celestina-agostino/67596-celestina-agostino-number-38.html)

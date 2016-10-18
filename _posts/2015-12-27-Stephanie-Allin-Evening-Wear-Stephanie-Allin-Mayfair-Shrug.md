@@ -9,7 +9,7 @@ tags: [Stephanie Allin Evening Wear]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-evening-wear/68890-stephanie-allin-mayfair-shrug.html"><img src="//static.msromantic.com/160747/stephanie-allin-mayfair-shrug.jpg" alt="Stephanie Allin Mayfair Shrug" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-evening-wear/68890-stephanie-allin-mayfair-shrug.html"><img src="//static.msromantic.com/160747/stephanie-allin-mayfair-shrug.jpg" alt="Stephanie Allin Mayfair Shrug" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/stephanie-allin-evening-wear/68890-stephanie-allin-mayfair-shrug.html](https://www.readybrides.com/en/stephanie-allin-evening-wear/68890-stephanie-allin-mayfair-shrug.html)
+Buy it: [https://www.antebrands.com/en/stephanie-allin-evening-wear/68890-stephanie-allin-mayfair-shrug.html](https://www.antebrands.com/en/stephanie-allin-evening-wear/68890-stephanie-allin-mayfair-shrug.html)

@@ -9,7 +9,7 @@ tags: [Macis Design Flower Girl Dresses]
 Just **$179.99**
 ### 
 
-<a href="https://www.readybrides.com/en/macis-design-flower-girl-dresses/69920-macis-communion-gown-t1869.html"><img src="//static.msromantic.com/164582/macis-communion-gown-t1869.jpg" alt="Macis Communion Gown T1869" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/macis-design-flower-girl-dresses/69920-macis-communion-gown-t1869.html"><img src="//static.msromantic.com/164582/macis-communion-gown-t1869.jpg" alt="Macis Communion Gown T1869" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/macis-design-flower-girl-dresses/69920-macis-communion-gown-t1869.html](https://www.readybrides.com/en/macis-design-flower-girl-dresses/69920-macis-communion-gown-t1869.html)
+Buy it: [https://www.antebrands.com/en/macis-design-flower-girl-dresses/69920-macis-communion-gown-t1869.html](https://www.antebrands.com/en/macis-design-flower-girl-dresses/69920-macis-communion-gown-t1869.html)

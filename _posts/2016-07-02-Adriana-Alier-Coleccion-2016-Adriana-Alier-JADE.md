@@ -9,7 +9,7 @@ tags: [Adriana Alier Coleccion 2016]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71413-adriana-alier-jade.html"><img src="//static.msromantic.com/167609/adriana-alier-jade.jpg" alt="Adriana Alier JADE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71413-adriana-alier-jade.html"><img src="//static.msromantic.com/167609/adriana-alier-jade.jpg" alt="Adriana Alier JADE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71413-adriana-alier-jade.html"><img src="//static.msromantic.com/167608/adriana-alier-jade.jpg" alt="Adriana Alier JADE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adriana-alier-coleccion-2016/71413-adriana-alier-jade.html](https://www.readybrides.com/en/adriana-alier-coleccion-2016/71413-adriana-alier-jade.html)
+<!-- break --><a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71413-adriana-alier-jade.html"><img src="//static.msromantic.com/167608/adriana-alier-jade.jpg" alt="Adriana Alier JADE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adriana-alier-coleccion-2016/71413-adriana-alier-jade.html](https://www.antebrands.com/en/adriana-alier-coleccion-2016/71413-adriana-alier-jade.html)

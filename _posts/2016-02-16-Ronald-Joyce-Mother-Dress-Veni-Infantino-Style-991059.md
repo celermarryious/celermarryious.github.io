@@ -9,7 +9,7 @@ tags: [Ronald Joyce Mother Dress]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ronald-joyce-mother-dress/70809-veni-infantino-style-991059.html"><img src="//static.msromantic.com/166411/veni-infantino-style-991059.jpg" alt="Veni Infantino Style 991059" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ronald-joyce-mother-dress/70809-veni-infantino-style-991059.html"><img src="//static.msromantic.com/166411/veni-infantino-style-991059.jpg" alt="Veni Infantino Style 991059" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/ronald-joyce-mother-dress/70809-veni-infantino-style-991059.html"><img src="//static.msromantic.com/166410/veni-infantino-style-991059.jpg" alt="Veni Infantino Style 991059" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/ronald-joyce-mother-dress/70809-veni-infantino-style-991059.html](https://www.readybrides.com/en/ronald-joyce-mother-dress/70809-veni-infantino-style-991059.html)
+<!-- break --><a href="https://www.antebrands.com/en/ronald-joyce-mother-dress/70809-veni-infantino-style-991059.html"><img src="//static.msromantic.com/166410/veni-infantino-style-991059.jpg" alt="Veni Infantino Style 991059" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/ronald-joyce-mother-dress/70809-veni-infantino-style-991059.html](https://www.antebrands.com/en/ronald-joyce-mother-dress/70809-veni-infantino-style-991059.html)

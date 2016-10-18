@@ -9,7 +9,7 @@ tags: [Stephanie Allin Classics Collection]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-classics-collection/68888-stephanie-allin-sofia.html"><img src="//static.msromantic.com/160744/stephanie-allin-sofia.jpg" alt="Stephanie Allin Sofia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-classics-collection/68888-stephanie-allin-sofia.html"><img src="//static.msromantic.com/160744/stephanie-allin-sofia.jpg" alt="Stephanie Allin Sofia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/stephanie-allin-classics-collection/68888-stephanie-allin-sofia.html"><img src="//static.msromantic.com/160743/stephanie-allin-sofia.jpg" alt="Stephanie Allin Sofia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/stephanie-allin-classics-collection/68888-stephanie-allin-sofia.html](https://www.readybrides.com/en/stephanie-allin-classics-collection/68888-stephanie-allin-sofia.html)
+<!-- break --><a href="https://www.antebrands.com/en/stephanie-allin-classics-collection/68888-stephanie-allin-sofia.html"><img src="//static.msromantic.com/160743/stephanie-allin-sofia.jpg" alt="Stephanie Allin Sofia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stephanie-allin-classics-collection/68888-stephanie-allin-sofia.html](https://www.antebrands.com/en/stephanie-allin-classics-collection/68888-stephanie-allin-sofia.html)

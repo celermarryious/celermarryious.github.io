@@ -9,7 +9,7 @@ tags: [Romantica of Devon Pure Bridal 2016]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66879-romantica-of-devon-fran.html"><img src="//static.msromantic.com/154840/romantica-of-devon-fran.jpg" alt="Romantica of Devon Fran" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66879-romantica-of-devon-fran.html"><img src="//static.msromantic.com/154840/romantica-of-devon-fran.jpg" alt="Romantica of Devon Fran" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66879-romantica-of-devon-fran.html](https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66879-romantica-of-devon-fran.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66879-romantica-of-devon-fran.html](https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66879-romantica-of-devon-fran.html)

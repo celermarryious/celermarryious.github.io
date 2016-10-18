@@ -9,7 +9,7 @@ tags: [Steven Birnbaum]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/steven-birnbaum/67806-trixie.html"><img src="//static.msromantic.com/157398/trixie.jpg" alt="Trixie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/steven-birnbaum/67806-trixie.html"><img src="//static.msromantic.com/157398/trixie.jpg" alt="Trixie" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/steven-birnbaum/67806-trixie.html"><img src="//static.msromantic.com/157397/trixie.jpg" alt="Trixie" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/steven-birnbaum/67806-trixie.html](https://www.readybrides.com/en/steven-birnbaum/67806-trixie.html)
+<!-- break --><a href="https://www.antebrands.com/en/steven-birnbaum/67806-trixie.html"><img src="//static.msromantic.com/157397/trixie.jpg" alt="Trixie" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/steven-birnbaum/67806-trixie.html](https://www.antebrands.com/en/steven-birnbaum/67806-trixie.html)

@@ -9,7 +9,7 @@ tags: [Me Prom]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/me-prom/71305-me-prom-style-rs2553.html"><img src="//static.msromantic.com/167357/me-prom-style-rs2553.jpg" alt="Me Prom Style RS2553" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/me-prom/71305-me-prom-style-rs2553.html"><img src="//static.msromantic.com/167357/me-prom-style-rs2553.jpg" alt="Me Prom Style RS2553" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/me-prom/71305-me-prom-style-rs2553.html"><img src="//static.msromantic.com/167356/me-prom-style-rs2553.jpg" alt="Me Prom Style RS2553" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/me-prom/71305-me-prom-style-rs2553.html](https://www.readybrides.com/en/me-prom/71305-me-prom-style-rs2553.html)
+<!-- break --><a href="https://www.antebrands.com/en/me-prom/71305-me-prom-style-rs2553.html"><img src="//static.msromantic.com/167356/me-prom-style-rs2553.jpg" alt="Me Prom Style RS2553" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/me-prom/71305-me-prom-style-rs2553.html](https://www.antebrands.com/en/me-prom/71305-me-prom-style-rs2553.html)

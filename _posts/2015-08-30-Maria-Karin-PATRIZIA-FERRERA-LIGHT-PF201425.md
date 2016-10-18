@@ -9,7 +9,7 @@ tags: [Maria Karin]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/maria-karin/71106-patrizia-ferrera-light-pf201425.html"><img src="//static.msromantic.com/167001/patrizia-ferrera-light-pf201425.jpg" alt="PATRIZIA FERRERA LIGHT PF201425" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/maria-karin/71106-patrizia-ferrera-light-pf201425.html"><img src="//static.msromantic.com/167001/patrizia-ferrera-light-pf201425.jpg" alt="PATRIZIA FERRERA LIGHT PF201425" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/maria-karin/71106-patrizia-ferrera-light-pf201425.html"><img src="//static.msromantic.com/167000/patrizia-ferrera-light-pf201425.jpg" alt="PATRIZIA FERRERA LIGHT PF201425" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/maria-karin/71106-patrizia-ferrera-light-pf201425.html](https://www.readybrides.com/en/maria-karin/71106-patrizia-ferrera-light-pf201425.html)
+<!-- break --><a href="https://www.antebrands.com/en/maria-karin/71106-patrizia-ferrera-light-pf201425.html"><img src="//static.msromantic.com/167000/patrizia-ferrera-light-pf201425.jpg" alt="PATRIZIA FERRERA LIGHT PF201425" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/maria-karin/71106-patrizia-ferrera-light-pf201425.html](https://www.antebrands.com/en/maria-karin/71106-patrizia-ferrera-light-pf201425.html)

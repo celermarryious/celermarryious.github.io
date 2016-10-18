@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica 2016]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66492-romantica-of-devon-felicia.html"><img src="//static.msromantic.com/153926/romantica-of-devon-felicia.jpg" alt="Romantica of Devon Felicia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66492-romantica-of-devon-felicia.html"><img src="//static.msromantic.com/153926/romantica-of-devon-felicia.jpg" alt="Romantica of Devon Felicia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66492-romantica-of-devon-felicia.html"><img src="//static.msromantic.com/153925/romantica-of-devon-felicia.jpg" alt="Romantica of Devon Felicia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66492-romantica-of-devon-felicia.html](https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66492-romantica-of-devon-felicia.html)
+<!-- break --><a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66492-romantica-of-devon-felicia.html"><img src="//static.msromantic.com/153925/romantica-of-devon-felicia.jpg" alt="Romantica of Devon Felicia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66492-romantica-of-devon-felicia.html](https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66492-romantica-of-devon-felicia.html)

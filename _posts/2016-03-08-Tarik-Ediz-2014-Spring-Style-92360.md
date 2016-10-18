@@ -9,7 +9,7 @@ tags: [Tarik Ediz 2014 Spring]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tarik-ediz-2014-spring/69429-tarik-ediz-2014-spring-style-92360.html"><img src="//static.msromantic.com/162933/tarik-ediz-2014-spring-style-92360.jpg" alt="Tarik Ediz 2014 Spring Style 92360" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tarik-ediz-2014-spring/69429-tarik-ediz-2014-spring-style-92360.html"><img src="//static.msromantic.com/162933/tarik-ediz-2014-spring-style-92360.jpg" alt="Tarik Ediz 2014 Spring Style 92360" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tarik-ediz-2014-spring/69429-tarik-ediz-2014-spring-style-92360.html](https://www.readybrides.com/en/tarik-ediz-2014-spring/69429-tarik-ediz-2014-spring-style-92360.html)
+Buy it: [https://www.antebrands.com/en/tarik-ediz-2014-spring/69429-tarik-ediz-2014-spring-style-92360.html](https://www.antebrands.com/en/tarik-ediz-2014-spring/69429-tarik-ediz-2014-spring-style-92360.html)

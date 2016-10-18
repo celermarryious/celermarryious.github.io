@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71385-sophia-tolli-wedding-dress-y11322.html"><img src="//static.msromantic.com/167548/sophia-tolli-wedding-dress-y11322.jpg" alt="Sophia Tolli Wedding Dress Y11322" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71385-sophia-tolli-wedding-dress-y11322.html"><img src="//static.msromantic.com/167548/sophia-tolli-wedding-dress-y11322.jpg" alt="Sophia Tolli Wedding Dress Y11322" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71385-sophia-tolli-wedding-dress-y11322.html"><img src="//static.msromantic.com/167547/sophia-tolli-wedding-dress-y11322.jpg" alt="Sophia Tolli Wedding Dress Y11322" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71385-sophia-tolli-wedding-dress-y11322.html](https://www.readybrides.com/en/sophia-tolli/71385-sophia-tolli-wedding-dress-y11322.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71385-sophia-tolli-wedding-dress-y11322.html"><img src="//static.msromantic.com/167547/sophia-tolli-wedding-dress-y11322.jpg" alt="Sophia Tolli Wedding Dress Y11322" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71385-sophia-tolli-wedding-dress-y11322.html](https://www.antebrands.com/en/sophia-tolli/71385-sophia-tolli-wedding-dress-y11322.html)

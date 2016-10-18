@@ -9,7 +9,7 @@ tags: [Sarah Janks Bridal Classic Styles]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68475-sarah-janks-brigitte.html"><img src="//static.msromantic.com/159896/sarah-janks-brigitte.jpg" alt="Sarah Janks Brigitte" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68475-sarah-janks-brigitte.html"><img src="//static.msromantic.com/159896/sarah-janks-brigitte.jpg" alt="Sarah Janks Brigitte" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68475-sarah-janks-brigitte.html"><img src="//static.msromantic.com/159895/sarah-janks-brigitte.jpg" alt="Sarah Janks Brigitte" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68475-sarah-janks-brigitte.html](https://www.readybrides.com/en/sarah-janks-bridal-classic-styles/68475-sarah-janks-brigitte.html)
+<!-- break --><a href="https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68475-sarah-janks-brigitte.html"><img src="//static.msromantic.com/159895/sarah-janks-brigitte.jpg" alt="Sarah Janks Brigitte" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68475-sarah-janks-brigitte.html](https://www.antebrands.com/en/sarah-janks-bridal-classic-styles/68475-sarah-janks-brigitte.html)

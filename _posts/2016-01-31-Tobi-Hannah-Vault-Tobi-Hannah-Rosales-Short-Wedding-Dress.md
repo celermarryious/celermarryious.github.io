@@ -9,7 +9,7 @@ tags: [Tobi Hannah Vault]
 Just **$219.90**
 ### 
 
-<a href="https://www.readybrides.com/en/tobi-hannah-vault/69859-tobi-hannah-rosales-short-wedding-dress.html"><img src="//static.msromantic.com/164464/tobi-hannah-rosales-short-wedding-dress.jpg" alt="Tobi Hannah Rosales Short Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tobi-hannah-vault/69859-tobi-hannah-rosales-short-wedding-dress.html"><img src="//static.msromantic.com/164464/tobi-hannah-rosales-short-wedding-dress.jpg" alt="Tobi Hannah Rosales Short Wedding Dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tobi-hannah-vault/69859-tobi-hannah-rosales-short-wedding-dress.html](https://www.readybrides.com/en/tobi-hannah-vault/69859-tobi-hannah-rosales-short-wedding-dress.html)
+Buy it: [https://www.antebrands.com/en/tobi-hannah-vault/69859-tobi-hannah-rosales-short-wedding-dress.html](https://www.antebrands.com/en/tobi-hannah-vault/69859-tobi-hannah-rosales-short-wedding-dress.html)

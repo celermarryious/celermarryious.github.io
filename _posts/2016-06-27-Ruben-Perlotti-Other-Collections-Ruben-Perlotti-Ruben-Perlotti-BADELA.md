@@ -9,7 +9,7 @@ tags: [Ruben Perlotti Other Collections Ruben Perlotti]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66271-ruben-perlotti-badela.html"><img src="//static.msromantic.com/153297/ruben-perlotti-badela.jpg" alt="Ruben Perlotti BADELA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66271-ruben-perlotti-badela.html"><img src="//static.msromantic.com/153297/ruben-perlotti-badela.jpg" alt="Ruben Perlotti BADELA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66271-ruben-perlotti-badela.html](https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66271-ruben-perlotti-badela.html)
+Buy it: [https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66271-ruben-perlotti-badela.html](https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66271-ruben-perlotti-badela.html)

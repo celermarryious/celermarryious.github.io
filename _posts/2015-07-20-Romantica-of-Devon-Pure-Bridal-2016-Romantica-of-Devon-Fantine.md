@@ -9,7 +9,7 @@ tags: [Romantica of Devon Pure Bridal 2016]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66862-romantica-of-devon-fantine.html"><img src="//static.msromantic.com/154801/romantica-of-devon-fantine.jpg" alt="Romantica of Devon Fantine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66862-romantica-of-devon-fantine.html"><img src="//static.msromantic.com/154801/romantica-of-devon-fantine.jpg" alt="Romantica of Devon Fantine" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66862-romantica-of-devon-fantine.html"><img src="//static.msromantic.com/154800/romantica-of-devon-fantine.jpg" alt="Romantica of Devon Fantine" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66862-romantica-of-devon-fantine.html](https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66862-romantica-of-devon-fantine.html)
+<!-- break --><a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66862-romantica-of-devon-fantine.html"><img src="//static.msromantic.com/154800/romantica-of-devon-fantine.jpg" alt="Romantica of Devon Fantine" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66862-romantica-of-devon-fantine.html](https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66862-romantica-of-devon-fantine.html)

@@ -9,7 +9,7 @@ tags: [Me Prom]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/me-prom/71315-me-prom-style-mp1359.html"><img src="//static.msromantic.com/167376/me-prom-style-mp1359.jpg" alt="Me Prom Style MP1359" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/me-prom/71315-me-prom-style-mp1359.html"><img src="//static.msromantic.com/167376/me-prom-style-mp1359.jpg" alt="Me Prom Style MP1359" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/me-prom/71315-me-prom-style-mp1359.html"><img src="//static.msromantic.com/167375/me-prom-style-mp1359.jpg" alt="Me Prom Style MP1359" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/me-prom/71315-me-prom-style-mp1359.html](https://www.readybrides.com/en/me-prom/71315-me-prom-style-mp1359.html)
+<!-- break --><a href="https://www.antebrands.com/en/me-prom/71315-me-prom-style-mp1359.html"><img src="//static.msromantic.com/167375/me-prom-style-mp1359.jpg" alt="Me Prom Style MP1359" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/me-prom/71315-me-prom-style-mp1359.html](https://www.antebrands.com/en/me-prom/71315-me-prom-style-mp1359.html)

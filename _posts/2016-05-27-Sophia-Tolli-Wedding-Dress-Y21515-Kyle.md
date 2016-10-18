@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71377-sophia-tolli-wedding-dress-y21515-kyle.html"><img src="//static.msromantic.com/167531/sophia-tolli-wedding-dress-y21515-kyle.jpg" alt="Sophia Tolli Wedding Dress Y21515 Kyle" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71377-sophia-tolli-wedding-dress-y21515-kyle.html"><img src="//static.msromantic.com/167531/sophia-tolli-wedding-dress-y21515-kyle.jpg" alt="Sophia Tolli Wedding Dress Y21515 Kyle" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71377-sophia-tolli-wedding-dress-y21515-kyle.html"><img src="//static.msromantic.com/167530/sophia-tolli-wedding-dress-y21515-kyle.jpg" alt="Sophia Tolli Wedding Dress Y21515 Kyle" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71377-sophia-tolli-wedding-dress-y21515-kyle.html](https://www.readybrides.com/en/sophia-tolli/71377-sophia-tolli-wedding-dress-y21515-kyle.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71377-sophia-tolli-wedding-dress-y21515-kyle.html"><img src="//static.msromantic.com/167530/sophia-tolli-wedding-dress-y21515-kyle.jpg" alt="Sophia Tolli Wedding Dress Y21515 Kyle" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71377-sophia-tolli-wedding-dress-y21515-kyle.html](https://www.antebrands.com/en/sophia-tolli/71377-sophia-tolli-wedding-dress-y21515-kyle.html)

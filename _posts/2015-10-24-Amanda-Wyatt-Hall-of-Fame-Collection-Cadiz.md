@@ -9,7 +9,7 @@ tags: [Amanda Wyatt]
 Just **$439.99**
 ### 
 
-<a href="https://www.readybrides.com/en/amanda-wyatt/67892-amanda-wyatt-hall-of-fame-collection-cadiz.html"><img src="//static.msromantic.com/157778/amanda-wyatt-hall-of-fame-collection-cadiz.jpg" alt="Amanda Wyatt Hall of Fame Collection Cadiz" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amanda-wyatt/67892-amanda-wyatt-hall-of-fame-collection-cadiz.html"><img src="//static.msromantic.com/157778/amanda-wyatt-hall-of-fame-collection-cadiz.jpg" alt="Amanda Wyatt Hall of Fame Collection Cadiz" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/amanda-wyatt/67892-amanda-wyatt-hall-of-fame-collection-cadiz.html](https://www.readybrides.com/en/amanda-wyatt/67892-amanda-wyatt-hall-of-fame-collection-cadiz.html)
+Buy it: [https://www.antebrands.com/en/amanda-wyatt/67892-amanda-wyatt-hall-of-fame-collection-cadiz.html](https://www.antebrands.com/en/amanda-wyatt/67892-amanda-wyatt-hall-of-fame-collection-cadiz.html)

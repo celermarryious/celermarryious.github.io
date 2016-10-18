@@ -9,7 +9,7 @@ tags: [RS COUTURE Rainbow]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rs-couture-rainbow/67484-rs-couture-rs-1428.html"><img src="//static.msromantic.com/156639/rs-couture-rs-1428.jpg" alt="RS COUTURE RS 1428" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rs-couture-rainbow/67484-rs-couture-rs-1428.html"><img src="//static.msromantic.com/156639/rs-couture-rs-1428.jpg" alt="RS COUTURE RS 1428" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rs-couture-rainbow/67484-rs-couture-rs-1428.html](https://www.readybrides.com/en/rs-couture-rainbow/67484-rs-couture-rs-1428.html)
+Buy it: [https://www.antebrands.com/en/rs-couture-rainbow/67484-rs-couture-rs-1428.html](https://www.antebrands.com/en/rs-couture-rainbow/67484-rs-couture-rs-1428.html)

@@ -9,7 +9,7 @@ tags: [Ruben Perlotti Other Collections Ruben Perlotti]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66276-ruben-perlotti-kaliat.html"><img src="//static.msromantic.com/153302/ruben-perlotti-kaliat.jpg" alt="Ruben Perlotti KALIAT" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66276-ruben-perlotti-kaliat.html"><img src="//static.msromantic.com/153302/ruben-perlotti-kaliat.jpg" alt="Ruben Perlotti KALIAT" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66276-ruben-perlotti-kaliat.html](https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66276-ruben-perlotti-kaliat.html)
+Buy it: [https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66276-ruben-perlotti-kaliat.html](https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66276-ruben-perlotti-kaliat.html)

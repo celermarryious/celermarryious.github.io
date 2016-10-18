@@ -9,7 +9,7 @@ tags: [Stephanie Allin Evening Wear]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-evening-wear/68904-stephanie-allin-ivory-shadow-skirt.html"><img src="//static.msromantic.com/160761/stephanie-allin-ivory-shadow-skirt.jpg" alt="Stephanie Allin Ivory Shadow Skirt" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-evening-wear/68904-stephanie-allin-ivory-shadow-skirt.html"><img src="//static.msromantic.com/160761/stephanie-allin-ivory-shadow-skirt.jpg" alt="Stephanie Allin Ivory Shadow Skirt" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/stephanie-allin-evening-wear/68904-stephanie-allin-ivory-shadow-skirt.html](https://www.readybrides.com/en/stephanie-allin-evening-wear/68904-stephanie-allin-ivory-shadow-skirt.html)
+Buy it: [https://www.antebrands.com/en/stephanie-allin-evening-wear/68904-stephanie-allin-ivory-shadow-skirt.html](https://www.antebrands.com/en/stephanie-allin-evening-wear/68904-stephanie-allin-ivory-shadow-skirt.html)

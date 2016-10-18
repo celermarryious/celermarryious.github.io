@@ -9,8 +9,8 @@ tags: [Kenneth Winston wedding dress]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html"><img src="//static.msromantic.com/155387/femme-by-kenneth-winston-3378.jpg" alt="Femme by Kenneth Winston 3378" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html"><img src="//static.msromantic.com/155387/femme-by-kenneth-winston-3378.jpg" alt="Femme by Kenneth Winston 3378" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html"><img src="//static.msromantic.com/155388/femme-by-kenneth-winston-3378.jpg" alt="Femme by Kenneth Winston 3378" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html"><img src="//static.msromantic.com/155386/femme-by-kenneth-winston-3378.jpg" alt="Femme by Kenneth Winston 3378" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html](https://www.readybrides.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html)
+<!-- break --><a href="https://www.antebrands.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html"><img src="//static.msromantic.com/155388/femme-by-kenneth-winston-3378.jpg" alt="Femme by Kenneth Winston 3378" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html"><img src="//static.msromantic.com/155386/femme-by-kenneth-winston-3378.jpg" alt="Femme by Kenneth Winston 3378" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html](https://www.antebrands.com/en/kenneth-winston-wedding-dress/67067-femme-by-kenneth-winston-3378.html)

@@ -9,7 +9,7 @@ tags: [Romantica of Devon Silhouette]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-silhouette/67041-romantica-of-devon-primrose.html"><img src="//static.msromantic.com/155289/romantica-of-devon-primrose.jpg" alt="Romantica of Devon Primrose" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-silhouette/67041-romantica-of-devon-primrose.html"><img src="//static.msromantic.com/155289/romantica-of-devon-primrose.jpg" alt="Romantica of Devon Primrose" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-silhouette/67041-romantica-of-devon-primrose.html](https://www.readybrides.com/en/romantica-of-devon-silhouette/67041-romantica-of-devon-primrose.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-silhouette/67041-romantica-of-devon-primrose.html](https://www.antebrands.com/en/romantica-of-devon-silhouette/67041-romantica-of-devon-primrose.html)

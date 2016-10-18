@@ -9,8 +9,8 @@ tags: [Steven Birnbaum]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/steven-birnbaum/67807-claire.html"><img src="//static.msromantic.com/157400/claire.jpg" alt="Claire" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/steven-birnbaum/67807-claire.html"><img src="//static.msromantic.com/157400/claire.jpg" alt="Claire" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/steven-birnbaum/67807-claire.html"><img src="//static.msromantic.com/157401/claire.jpg" alt="Claire" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/steven-birnbaum/67807-claire.html"><img src="//static.msromantic.com/157399/claire.jpg" alt="Claire" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/steven-birnbaum/67807-claire.html](https://www.readybrides.com/en/steven-birnbaum/67807-claire.html)
+<!-- break --><a href="https://www.antebrands.com/en/steven-birnbaum/67807-claire.html"><img src="//static.msromantic.com/157401/claire.jpg" alt="Claire" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/steven-birnbaum/67807-claire.html"><img src="//static.msromantic.com/157399/claire.jpg" alt="Claire" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/steven-birnbaum/67807-claire.html](https://www.antebrands.com/en/steven-birnbaum/67807-claire.html)

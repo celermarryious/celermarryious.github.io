@@ -9,8 +9,8 @@ tags: [Amanda Wyatt Bridesmaids]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html"><img src="//static.msromantic.com/157907/amanda-wyatt-bridesmaids-2260.jpg" alt="Amanda Wyatt Bridesmaids 2260" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html"><img src="//static.msromantic.com/157907/amanda-wyatt-bridesmaids-2260.jpg" alt="Amanda Wyatt Bridesmaids 2260" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html"><img src="//static.msromantic.com/157909/amanda-wyatt-bridesmaids-2260.jpg" alt="Amanda Wyatt Bridesmaids 2260" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html"><img src="//static.msromantic.com/157906/amanda-wyatt-bridesmaids-2260.jpg" alt="Amanda Wyatt Bridesmaids 2260" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html](https://www.readybrides.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html)
+<!-- break --><a href="https://www.antebrands.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html"><img src="//static.msromantic.com/157909/amanda-wyatt-bridesmaids-2260.jpg" alt="Amanda Wyatt Bridesmaids 2260" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html"><img src="//static.msromantic.com/157906/amanda-wyatt-bridesmaids-2260.jpg" alt="Amanda Wyatt Bridesmaids 2260" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html](https://www.antebrands.com/en/amanda-wyatt-bridesmaids/67930-amanda-wyatt-bridesmaids-2260.html)

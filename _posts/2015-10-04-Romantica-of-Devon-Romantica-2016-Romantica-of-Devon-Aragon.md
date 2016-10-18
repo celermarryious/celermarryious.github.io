@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica 2016]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66471-romantica-of-devon-aragon.html"><img src="//static.msromantic.com/153872/romantica-of-devon-aragon.jpg" alt="Romantica of Devon Aragon" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66471-romantica-of-devon-aragon.html"><img src="//static.msromantic.com/153872/romantica-of-devon-aragon.jpg" alt="Romantica of Devon Aragon" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66471-romantica-of-devon-aragon.html"><img src="//static.msromantic.com/153871/romantica-of-devon-aragon.jpg" alt="Romantica of Devon Aragon" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66471-romantica-of-devon-aragon.html](https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66471-romantica-of-devon-aragon.html)
+<!-- break --><a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66471-romantica-of-devon-aragon.html"><img src="//static.msromantic.com/153871/romantica-of-devon-aragon.jpg" alt="Romantica of Devon Aragon" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66471-romantica-of-devon-aragon.html](https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66471-romantica-of-devon-aragon.html)

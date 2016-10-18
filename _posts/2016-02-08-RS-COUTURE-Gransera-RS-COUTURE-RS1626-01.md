@@ -9,7 +9,7 @@ tags: [RS COUTURE Gransera]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rs-couture-gransera/67532-rs-couture-rs1626-01.html"><img src="//static.msromantic.com/156690/rs-couture-rs1626-01.jpg" alt="RS COUTURE RS1626 01" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rs-couture-gransera/67532-rs-couture-rs1626-01.html"><img src="//static.msromantic.com/156690/rs-couture-rs1626-01.jpg" alt="RS COUTURE RS1626 01" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rs-couture-gransera/67532-rs-couture-rs1626-01.html](https://www.readybrides.com/en/rs-couture-gransera/67532-rs-couture-rs1626-01.html)
+Buy it: [https://www.antebrands.com/en/rs-couture-gransera/67532-rs-couture-rs1626-01.html](https://www.antebrands.com/en/rs-couture-gransera/67532-rs-couture-rs1626-01.html)

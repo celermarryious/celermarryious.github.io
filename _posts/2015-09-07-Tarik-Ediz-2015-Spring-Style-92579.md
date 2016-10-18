@@ -9,7 +9,7 @@ tags: [Tarik Ediz 2015 Spring]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tarik-ediz-2015-spring/69246-tarik-ediz-2015-spring-style-92579.html"><img src="//static.msromantic.com/162425/tarik-ediz-2015-spring-style-92579.jpg" alt="Tarik Ediz 2015 Spring Style 92579" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tarik-ediz-2015-spring/69246-tarik-ediz-2015-spring-style-92579.html"><img src="//static.msromantic.com/162425/tarik-ediz-2015-spring-style-92579.jpg" alt="Tarik Ediz 2015 Spring Style 92579" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tarik-ediz-2015-spring/69246-tarik-ediz-2015-spring-style-92579.html](https://www.readybrides.com/en/tarik-ediz-2015-spring/69246-tarik-ediz-2015-spring-style-92579.html)
+Buy it: [https://www.antebrands.com/en/tarik-ediz-2015-spring/69246-tarik-ediz-2015-spring-style-92579.html](https://www.antebrands.com/en/tarik-ediz-2015-spring/69246-tarik-ediz-2015-spring-style-92579.html)

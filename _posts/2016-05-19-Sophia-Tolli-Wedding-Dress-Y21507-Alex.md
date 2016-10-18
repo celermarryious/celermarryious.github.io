@@ -9,8 +9,8 @@ tags: [Sophia Tolli]
 Just **$479.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html"><img src="//static.msromantic.com/167514/sophia-tolli-wedding-dress-y21507-alex.jpg" alt="Sophia Tolli Wedding Dress Y21507 Alex" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html"><img src="//static.msromantic.com/167514/sophia-tolli-wedding-dress-y21507-alex.jpg" alt="Sophia Tolli Wedding Dress Y21507 Alex" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html"><img src="//static.msromantic.com/167515/sophia-tolli-wedding-dress-y21507-alex.jpg" alt="Sophia Tolli Wedding Dress Y21507 Alex" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html"><img src="//static.msromantic.com/167513/sophia-tolli-wedding-dress-y21507-alex.jpg" alt="Sophia Tolli Wedding Dress Y21507 Alex" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html](https://www.readybrides.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html"><img src="//static.msromantic.com/167515/sophia-tolli-wedding-dress-y21507-alex.jpg" alt="Sophia Tolli Wedding Dress Y21507 Alex" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html"><img src="//static.msromantic.com/167513/sophia-tolli-wedding-dress-y21507-alex.jpg" alt="Sophia Tolli Wedding Dress Y21507 Alex" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html](https://www.antebrands.com/en/sophia-tolli/71369-sophia-tolli-wedding-dress-y21507-alex.html)

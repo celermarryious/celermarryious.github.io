@@ -9,7 +9,7 @@ tags: [Stephanie Allin Always Forever Collection]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-always-forever-collection/68867-stephanie-allin-shelley.html"><img src="//static.msromantic.com/160705/stephanie-allin-shelley.jpg" alt="Stephanie Allin Shelley" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-always-forever-collection/68867-stephanie-allin-shelley.html"><img src="//static.msromantic.com/160705/stephanie-allin-shelley.jpg" alt="Stephanie Allin Shelley" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/stephanie-allin-always-forever-collection/68867-stephanie-allin-shelley.html"><img src="//static.msromantic.com/160704/stephanie-allin-shelley.jpg" alt="Stephanie Allin Shelley" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/stephanie-allin-always-forever-collection/68867-stephanie-allin-shelley.html](https://www.readybrides.com/en/stephanie-allin-always-forever-collection/68867-stephanie-allin-shelley.html)
+<!-- break --><a href="https://www.antebrands.com/en/stephanie-allin-always-forever-collection/68867-stephanie-allin-shelley.html"><img src="//static.msromantic.com/160704/stephanie-allin-shelley.jpg" alt="Stephanie Allin Shelley" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stephanie-allin-always-forever-collection/68867-stephanie-allin-shelley.html](https://www.antebrands.com/en/stephanie-allin-always-forever-collection/68867-stephanie-allin-shelley.html)

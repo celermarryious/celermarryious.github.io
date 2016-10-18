@@ -9,7 +9,7 @@ tags: [Suzanne Neville Classics Collection]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/suzanne-neville-classics-collection/68705-suzanne-neville-leading-lady.html"><img src="//static.msromantic.com/160353/suzanne-neville-leading-lady.jpg" alt="Suzanne Neville Leading Lady" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/suzanne-neville-classics-collection/68705-suzanne-neville-leading-lady.html"><img src="//static.msromantic.com/160353/suzanne-neville-leading-lady.jpg" alt="Suzanne Neville Leading Lady" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/suzanne-neville-classics-collection/68705-suzanne-neville-leading-lady.html](https://www.readybrides.com/en/suzanne-neville-classics-collection/68705-suzanne-neville-leading-lady.html)
+Buy it: [https://www.antebrands.com/en/suzanne-neville-classics-collection/68705-suzanne-neville-leading-lady.html](https://www.antebrands.com/en/suzanne-neville-classics-collection/68705-suzanne-neville-leading-lady.html)

@@ -9,7 +9,7 @@ tags: [Suzanne Neville Classics Collection]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/suzanne-neville-classics-collection/68706-suzanne-neville-lucia.html"><img src="//static.msromantic.com/160354/suzanne-neville-lucia.jpg" alt="Suzanne Neville Lucia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/suzanne-neville-classics-collection/68706-suzanne-neville-lucia.html"><img src="//static.msromantic.com/160354/suzanne-neville-lucia.jpg" alt="Suzanne Neville Lucia" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/suzanne-neville-classics-collection/68706-suzanne-neville-lucia.html](https://www.readybrides.com/en/suzanne-neville-classics-collection/68706-suzanne-neville-lucia.html)
+Buy it: [https://www.antebrands.com/en/suzanne-neville-classics-collection/68706-suzanne-neville-lucia.html](https://www.antebrands.com/en/suzanne-neville-classics-collection/68706-suzanne-neville-lucia.html)

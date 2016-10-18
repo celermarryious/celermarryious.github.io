@@ -9,8 +9,8 @@ tags: [Marie Laporte]
 Just **$339.99**
 ###      
 <table><tr><td>BRANDS</td><td>Marie Laporte</td></tr></table>
-<a href="https://www.readybrides.com/en/marie-laporte/67274-marie-laporte-grace.html"><img src="//static.msromantic.com/156004/marie-laporte-grace.jpg" alt="Marie Laporte Grace" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marie-laporte/67274-marie-laporte-grace.html"><img src="//static.msromantic.com/156004/marie-laporte-grace.jpg" alt="Marie Laporte Grace" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/marie-laporte/67274-marie-laporte-grace.html"><img src="//static.msromantic.com/156005/marie-laporte-grace.jpg" alt="Marie Laporte Grace" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/marie-laporte/67274-marie-laporte-grace.html"><img src="//static.msromantic.com/156003/marie-laporte-grace.jpg" alt="Marie Laporte Grace" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/marie-laporte/67274-marie-laporte-grace.html](https://www.readybrides.com/en/marie-laporte/67274-marie-laporte-grace.html)
+<!-- break --><a href="https://www.antebrands.com/en/marie-laporte/67274-marie-laporte-grace.html"><img src="//static.msromantic.com/156005/marie-laporte-grace.jpg" alt="Marie Laporte Grace" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marie-laporte/67274-marie-laporte-grace.html"><img src="//static.msromantic.com/156003/marie-laporte-grace.jpg" alt="Marie Laporte Grace" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/marie-laporte/67274-marie-laporte-grace.html](https://www.antebrands.com/en/marie-laporte/67274-marie-laporte-grace.html)

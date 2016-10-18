@@ -9,7 +9,7 @@ tags: [Stephanie Allin Always Forever Collection]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-always-forever-collection/68864-stephanie-allin-savannah-shrug.html"><img src="//static.msromantic.com/160699/stephanie-allin-savannah-shrug.jpg" alt="Stephanie Allin Savannah Shrug" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-always-forever-collection/68864-stephanie-allin-savannah-shrug.html"><img src="//static.msromantic.com/160699/stephanie-allin-savannah-shrug.jpg" alt="Stephanie Allin Savannah Shrug" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/stephanie-allin-always-forever-collection/68864-stephanie-allin-savannah-shrug.html"><img src="//static.msromantic.com/160698/stephanie-allin-savannah-shrug.jpg" alt="Stephanie Allin Savannah Shrug" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/stephanie-allin-always-forever-collection/68864-stephanie-allin-savannah-shrug.html](https://www.readybrides.com/en/stephanie-allin-always-forever-collection/68864-stephanie-allin-savannah-shrug.html)
+<!-- break --><a href="https://www.antebrands.com/en/stephanie-allin-always-forever-collection/68864-stephanie-allin-savannah-shrug.html"><img src="//static.msromantic.com/160698/stephanie-allin-savannah-shrug.jpg" alt="Stephanie Allin Savannah Shrug" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stephanie-allin-always-forever-collection/68864-stephanie-allin-savannah-shrug.html](https://www.antebrands.com/en/stephanie-allin-always-forever-collection/68864-stephanie-allin-savannah-shrug.html)

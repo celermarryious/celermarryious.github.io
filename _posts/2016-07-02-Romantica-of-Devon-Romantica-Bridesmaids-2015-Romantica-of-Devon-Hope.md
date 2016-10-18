@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2015]
 Just **$169.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66743-romantica-of-devon-hope.html"><img src="//static.msromantic.com/154553/romantica-of-devon-hope.jpg" alt="Romantica of Devon Hope" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66743-romantica-of-devon-hope.html"><img src="//static.msromantic.com/154553/romantica-of-devon-hope.jpg" alt="Romantica of Devon Hope" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66743-romantica-of-devon-hope.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2015/66743-romantica-of-devon-hope.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66743-romantica-of-devon-hope.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2015/66743-romantica-of-devon-hope.html)

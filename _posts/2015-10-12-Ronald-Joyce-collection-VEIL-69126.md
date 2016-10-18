@@ -9,7 +9,7 @@ tags: [Ronald Joyce]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ronald-joyce/70215-ronald-joyce-collection-veil-69126.html"><img src="//static.msromantic.com/165114/ronald-joyce-collection-veil-69126.jpg" alt="Ronald Joyce collection VEIL 69126" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ronald-joyce/70215-ronald-joyce-collection-veil-69126.html"><img src="//static.msromantic.com/165114/ronald-joyce-collection-veil-69126.jpg" alt="Ronald Joyce collection VEIL 69126" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ronald-joyce/70215-ronald-joyce-collection-veil-69126.html](https://www.readybrides.com/en/ronald-joyce/70215-ronald-joyce-collection-veil-69126.html)
+Buy it: [https://www.antebrands.com/en/ronald-joyce/70215-ronald-joyce-collection-veil-69126.html](https://www.antebrands.com/en/ronald-joyce/70215-ronald-joyce-collection-veil-69126.html)

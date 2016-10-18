@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2011]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2011/66813-romantica-of-devon-sammy.html"><img src="//static.msromantic.com/154649/romantica-of-devon-sammy.jpg" alt="Romantica of Devon Sammy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2011/66813-romantica-of-devon-sammy.html"><img src="//static.msromantic.com/154649/romantica-of-devon-sammy.jpg" alt="Romantica of Devon Sammy" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2011/66813-romantica-of-devon-sammy.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2011/66813-romantica-of-devon-sammy.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2011/66813-romantica-of-devon-sammy.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2011/66813-romantica-of-devon-sammy.html)

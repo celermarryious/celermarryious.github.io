@@ -9,7 +9,7 @@ tags: [Ruben Perlotti Other Collections Ruben Perlotti]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66283-ruben-perlotti-tidare.html"><img src="//static.msromantic.com/153310/ruben-perlotti-tidare.jpg" alt="Ruben Perlotti TIDARE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66283-ruben-perlotti-tidare.html"><img src="//static.msromantic.com/153310/ruben-perlotti-tidare.jpg" alt="Ruben Perlotti TIDARE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66283-ruben-perlotti-tidare.html](https://www.readybrides.com/en/ruben-perlotti-other-collections-ruben-perlotti/66283-ruben-perlotti-tidare.html)
+Buy it: [https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66283-ruben-perlotti-tidare.html](https://www.antebrands.com/en/ruben-perlotti-other-collections-ruben-perlotti/66283-ruben-perlotti-tidare.html)

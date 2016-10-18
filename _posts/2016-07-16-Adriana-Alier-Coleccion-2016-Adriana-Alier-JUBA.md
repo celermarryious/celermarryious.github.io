@@ -9,7 +9,7 @@ tags: [Adriana Alier Coleccion 2016]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71427-adriana-alier-juba.html"><img src="//static.msromantic.com/167637/adriana-alier-juba.jpg" alt="Adriana Alier JUBA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71427-adriana-alier-juba.html"><img src="//static.msromantic.com/167637/adriana-alier-juba.jpg" alt="Adriana Alier JUBA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71427-adriana-alier-juba.html"><img src="//static.msromantic.com/167636/adriana-alier-juba.jpg" alt="Adriana Alier JUBA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adriana-alier-coleccion-2016/71427-adriana-alier-juba.html](https://www.readybrides.com/en/adriana-alier-coleccion-2016/71427-adriana-alier-juba.html)
+<!-- break --><a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71427-adriana-alier-juba.html"><img src="//static.msromantic.com/167636/adriana-alier-juba.jpg" alt="Adriana Alier JUBA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adriana-alier-coleccion-2016/71427-adriana-alier-juba.html](https://www.antebrands.com/en/adriana-alier-coleccion-2016/71427-adriana-alier-juba.html)

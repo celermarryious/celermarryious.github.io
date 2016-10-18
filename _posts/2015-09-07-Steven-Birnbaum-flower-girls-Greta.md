@@ -9,7 +9,7 @@ tags: [Steven Birnbaum flower girls]
 Just **$149.99**
 ### 
 
-<a href="https://www.readybrides.com/en/steven-birnbaum-flower-girls/67845-greta.html"><img src="//static.msromantic.com/157493/greta.jpg" alt="Greta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/steven-birnbaum-flower-girls/67845-greta.html"><img src="//static.msromantic.com/157493/greta.jpg" alt="Greta" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/steven-birnbaum-flower-girls/67845-greta.html](https://www.readybrides.com/en/steven-birnbaum-flower-girls/67845-greta.html)
+Buy it: [https://www.antebrands.com/en/steven-birnbaum-flower-girls/67845-greta.html](https://www.antebrands.com/en/steven-birnbaum-flower-girls/67845-greta.html)

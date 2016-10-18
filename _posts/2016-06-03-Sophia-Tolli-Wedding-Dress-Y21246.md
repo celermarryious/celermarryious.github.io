@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$469.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71384-sophia-tolli-wedding-dress-y21246.html"><img src="//static.msromantic.com/167546/sophia-tolli-wedding-dress-y21246.jpg" alt="Sophia Tolli Wedding Dress Y21246" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71384-sophia-tolli-wedding-dress-y21246.html"><img src="//static.msromantic.com/167546/sophia-tolli-wedding-dress-y21246.jpg" alt="Sophia Tolli Wedding Dress Y21246" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71384-sophia-tolli-wedding-dress-y21246.html"><img src="//static.msromantic.com/167545/sophia-tolli-wedding-dress-y21246.jpg" alt="Sophia Tolli Wedding Dress Y21246" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71384-sophia-tolli-wedding-dress-y21246.html](https://www.readybrides.com/en/sophia-tolli/71384-sophia-tolli-wedding-dress-y21246.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71384-sophia-tolli-wedding-dress-y21246.html"><img src="//static.msromantic.com/167545/sophia-tolli-wedding-dress-y21246.jpg" alt="Sophia Tolli Wedding Dress Y21246" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71384-sophia-tolli-wedding-dress-y21246.html](https://www.antebrands.com/en/sophia-tolli/71384-sophia-tolli-wedding-dress-y21246.html)

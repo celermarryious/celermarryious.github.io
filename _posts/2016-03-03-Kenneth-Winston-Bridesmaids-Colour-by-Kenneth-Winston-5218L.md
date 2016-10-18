@@ -9,7 +9,7 @@ tags: [Kenneth Winston Bridesmaids]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kenneth-winston-bridesmaids/67089-colour-by-kenneth-winston-5218l.html"><img src="//static.msromantic.com/155446/colour-by-kenneth-winston-5218l.jpg" alt="Colour by Kenneth Winston 5218L" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-winston-bridesmaids/67089-colour-by-kenneth-winston-5218l.html"><img src="//static.msromantic.com/155446/colour-by-kenneth-winston-5218l.jpg" alt="Colour by Kenneth Winston 5218L" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kenneth-winston-bridesmaids/67089-colour-by-kenneth-winston-5218l.html](https://www.readybrides.com/en/kenneth-winston-bridesmaids/67089-colour-by-kenneth-winston-5218l.html)
+Buy it: [https://www.antebrands.com/en/kenneth-winston-bridesmaids/67089-colour-by-kenneth-winston-5218l.html](https://www.antebrands.com/en/kenneth-winston-bridesmaids/67089-colour-by-kenneth-winston-5218l.html)

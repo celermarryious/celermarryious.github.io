@@ -9,8 +9,8 @@ tags: [Romantica of Devon Romantica 2016]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html"><img src="//static.msromantic.com/153886/romantica-of-devon-brianne.jpg" alt="Romantica of Devon Brianne" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html"><img src="//static.msromantic.com/153886/romantica-of-devon-brianne.jpg" alt="Romantica of Devon Brianne" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html"><img src="//static.msromantic.com/153887/romantica-of-devon-brianne.jpg" alt="Romantica of Devon Brianne" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html"><img src="//static.msromantic.com/153885/romantica-of-devon-brianne.jpg" alt="Romantica of Devon Brianne" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html](https://www.readybrides.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html)
+<!-- break --><a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html"><img src="//static.msromantic.com/153887/romantica-of-devon-brianne.jpg" alt="Romantica of Devon Brianne" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html"><img src="//static.msromantic.com/153885/romantica-of-devon-brianne.jpg" alt="Romantica of Devon Brianne" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html](https://www.antebrands.com/en/romantica-of-devon-romantica-2016/66477-romantica-of-devon-brianne.html)

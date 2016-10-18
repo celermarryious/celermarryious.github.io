@@ -9,8 +9,8 @@ tags: [Ella Rosa]
 Just **$349.99**
 ###      
 <table><tr><td>BRANDS</td><td>Ella Rosa</td></tr></table>
-<a href="https://www.readybrides.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html"><img src="//static.msromantic.com/153794/ella-rosa-gallery-ga2244.jpg" alt="Ella Rosa Gallery GA2244" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html"><img src="//static.msromantic.com/153794/ella-rosa-gallery-ga2244.jpg" alt="Ella Rosa Gallery GA2244" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html"><img src="//static.msromantic.com/153795/ella-rosa-gallery-ga2244.jpg" alt="Ella Rosa Gallery GA2244" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html"><img src="//static.msromantic.com/153793/ella-rosa-gallery-ga2244.jpg" alt="Ella Rosa Gallery GA2244" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html](https://www.readybrides.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html)
+<!-- break --><a href="https://www.antebrands.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html"><img src="//static.msromantic.com/153795/ella-rosa-gallery-ga2244.jpg" alt="Ella Rosa Gallery GA2244" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html"><img src="//static.msromantic.com/153793/ella-rosa-gallery-ga2244.jpg" alt="Ella Rosa Gallery GA2244" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html](https://www.antebrands.com/en/ella-rosa/66444-ella-rosa-gallery-ga2244.html)

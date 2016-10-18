@@ -9,7 +9,7 @@ tags: [Sarah Janks Bridal Canto Paradiso aw 2015]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sarah-janks-bridal-canto-paradiso-aw-2015/68432-sarah-janks-frida.html"><img src="//static.msromantic.com/159814/sarah-janks-frida.jpg" alt="Sarah Janks Frida" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sarah-janks-bridal-canto-paradiso-aw-2015/68432-sarah-janks-frida.html"><img src="//static.msromantic.com/159814/sarah-janks-frida.jpg" alt="Sarah Janks Frida" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/sarah-janks-bridal-canto-paradiso-aw-2015/68432-sarah-janks-frida.html](https://www.readybrides.com/en/sarah-janks-bridal-canto-paradiso-aw-2015/68432-sarah-janks-frida.html)
+Buy it: [https://www.antebrands.com/en/sarah-janks-bridal-canto-paradiso-aw-2015/68432-sarah-janks-frida.html](https://www.antebrands.com/en/sarah-janks-bridal-canto-paradiso-aw-2015/68432-sarah-janks-frida.html)

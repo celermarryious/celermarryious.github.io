@@ -9,7 +9,7 @@ tags: [Tony Ward,Sheath/Column,Illusion,Court Train,Sleeveless]
 Just **$299.99**
 ###   Sleeveless Court Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Tony Ward</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/tony-ward/71223-tony-ward-15-veronica.html"><img src="//static.msromantic.com/167222/tony-ward-15-veronica.jpg" alt="Tony Ward 15 Veronica" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tony-ward/71223-tony-ward-15-veronica.html"><img src="//static.msromantic.com/167222/tony-ward-15-veronica.jpg" alt="Tony Ward 15 Veronica" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tony-ward/71223-tony-ward-15-veronica.html"><img src="//static.msromantic.com/167221/tony-ward-15-veronica.jpg" alt="Tony Ward 15 Veronica" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tony-ward/71223-tony-ward-15-veronica.html](https://www.readybrides.com/en/tony-ward/71223-tony-ward-15-veronica.html)
+<!-- break --><a href="https://www.antebrands.com/en/tony-ward/71223-tony-ward-15-veronica.html"><img src="//static.msromantic.com/167221/tony-ward-15-veronica.jpg" alt="Tony Ward 15 Veronica" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/tony-ward/71223-tony-ward-15-veronica.html](https://www.antebrands.com/en/tony-ward/71223-tony-ward-15-veronica.html)

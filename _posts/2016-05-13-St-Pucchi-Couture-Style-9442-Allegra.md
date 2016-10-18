@@ -9,7 +9,7 @@ tags: [St. Pucchi Couture]
 Just **$559.99**
 ### 
 
-<a href="https://www.readybrides.com/en/st-pucchi-couture/68561-st-pucchi-couture-style-9442-allegra.html"><img src="//static.msromantic.com/160119/st-pucchi-couture-style-9442-allegra.jpg" alt="St. Pucchi Couture Style 9442 - Allegra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/st-pucchi-couture/68561-st-pucchi-couture-style-9442-allegra.html"><img src="//static.msromantic.com/160119/st-pucchi-couture-style-9442-allegra.jpg" alt="St. Pucchi Couture Style 9442 - Allegra" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/st-pucchi-couture/68561-st-pucchi-couture-style-9442-allegra.html](https://www.readybrides.com/en/st-pucchi-couture/68561-st-pucchi-couture-style-9442-allegra.html)
+Buy it: [https://www.antebrands.com/en/st-pucchi-couture/68561-st-pucchi-couture-style-9442-allegra.html](https://www.antebrands.com/en/st-pucchi-couture/68561-st-pucchi-couture-style-9442-allegra.html)

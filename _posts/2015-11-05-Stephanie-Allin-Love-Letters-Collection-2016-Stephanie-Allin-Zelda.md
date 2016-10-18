@@ -9,7 +9,7 @@ tags: [Stephanie Allin Love Letters Collection 2016]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68838-stephanie-allin-zelda.html"><img src="//static.msromantic.com/160650/stephanie-allin-zelda.jpg" alt="Stephanie Allin Zelda" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68838-stephanie-allin-zelda.html"><img src="//static.msromantic.com/160650/stephanie-allin-zelda.jpg" alt="Stephanie Allin Zelda" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68838-stephanie-allin-zelda.html"><img src="//static.msromantic.com/160649/stephanie-allin-zelda.jpg" alt="Stephanie Allin Zelda" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68838-stephanie-allin-zelda.html](https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68838-stephanie-allin-zelda.html)
+<!-- break --><a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68838-stephanie-allin-zelda.html"><img src="//static.msromantic.com/160649/stephanie-allin-zelda.jpg" alt="Stephanie Allin Zelda" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68838-stephanie-allin-zelda.html](https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68838-stephanie-allin-zelda.html)

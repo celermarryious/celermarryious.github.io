@@ -9,7 +9,7 @@ tags: [Stephanie Allin Love Letters Collection 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68814-stephanie-allin-amy.html"><img src="//static.msromantic.com/160602/stephanie-allin-amy.jpg" alt="Stephanie Allin Amy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68814-stephanie-allin-amy.html"><img src="//static.msromantic.com/160602/stephanie-allin-amy.jpg" alt="Stephanie Allin Amy" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68814-stephanie-allin-amy.html"><img src="//static.msromantic.com/160601/stephanie-allin-amy.jpg" alt="Stephanie Allin Amy" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68814-stephanie-allin-amy.html](https://www.readybrides.com/en/stephanie-allin-love-letters-collection-2016/68814-stephanie-allin-amy.html)
+<!-- break --><a href="https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68814-stephanie-allin-amy.html"><img src="//static.msromantic.com/160601/stephanie-allin-amy.jpg" alt="Stephanie Allin Amy" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68814-stephanie-allin-amy.html](https://www.antebrands.com/en/stephanie-allin-love-letters-collection-2016/68814-stephanie-allin-amy.html)

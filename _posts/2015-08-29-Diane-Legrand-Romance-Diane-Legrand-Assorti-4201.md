@@ -9,9 +9,9 @@ tags: [Diane Legrand Romance]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html"><img src="//static.msromantic.com/163933/diane-legrand-assorti-4201.jpg" alt="Diane Legrand Assorti 4201" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html"><img src="//static.msromantic.com/163933/diane-legrand-assorti-4201.jpg" alt="Diane Legrand Assorti 4201" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html"><img src="//static.msromantic.com/163934/diane-legrand-assorti-4201.jpg" alt="Diane Legrand Assorti 4201" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html"><img src="//static.msromantic.com/163935/diane-legrand-assorti-4201.jpg" alt="Diane Legrand Assorti 4201" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html"><img src="//static.msromantic.com/163932/diane-legrand-assorti-4201.jpg" alt="Diane Legrand Assorti 4201" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html](https://www.readybrides.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html)
+<!-- break --><a href="https://www.antebrands.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html"><img src="//static.msromantic.com/163934/diane-legrand-assorti-4201.jpg" alt="Diane Legrand Assorti 4201" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html"><img src="//static.msromantic.com/163935/diane-legrand-assorti-4201.jpg" alt="Diane Legrand Assorti 4201" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html"><img src="//static.msromantic.com/163932/diane-legrand-assorti-4201.jpg" alt="Diane Legrand Assorti 4201" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html](https://www.antebrands.com/en/diane-legrand-romance/69704-diane-legrand-assorti-4201.html)

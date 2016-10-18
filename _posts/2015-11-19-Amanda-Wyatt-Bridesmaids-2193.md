@@ -9,7 +9,7 @@ tags: [Amanda Wyatt Bridesmaids]
 Just **$209.99**
 ### 
 
-<a href="https://www.readybrides.com/en/amanda-wyatt-bridesmaids/67918-amanda-wyatt-bridesmaids-2193.html"><img src="//static.msromantic.com/157870/amanda-wyatt-bridesmaids-2193.jpg" alt="Amanda Wyatt Bridesmaids 2193" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amanda-wyatt-bridesmaids/67918-amanda-wyatt-bridesmaids-2193.html"><img src="//static.msromantic.com/157870/amanda-wyatt-bridesmaids-2193.jpg" alt="Amanda Wyatt Bridesmaids 2193" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/amanda-wyatt-bridesmaids/67918-amanda-wyatt-bridesmaids-2193.html](https://www.readybrides.com/en/amanda-wyatt-bridesmaids/67918-amanda-wyatt-bridesmaids-2193.html)
+Buy it: [https://www.antebrands.com/en/amanda-wyatt-bridesmaids/67918-amanda-wyatt-bridesmaids-2193.html](https://www.antebrands.com/en/amanda-wyatt-bridesmaids/67918-amanda-wyatt-bridesmaids-2193.html)

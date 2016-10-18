@@ -9,7 +9,7 @@ tags: [Sophia Tolli]
 Just **$469.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sophia-tolli/71382-sophia-tolli-wedding-dress-y21520-carson.html"><img src="//static.msromantic.com/167541/sophia-tolli-wedding-dress-y21520-carson.jpg" alt="Sophia Tolli Wedding Dress Y21520 Carson" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sophia-tolli/71382-sophia-tolli-wedding-dress-y21520-carson.html"><img src="//static.msromantic.com/167541/sophia-tolli-wedding-dress-y21520-carson.jpg" alt="Sophia Tolli Wedding Dress Y21520 Carson" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/71382-sophia-tolli-wedding-dress-y21520-carson.html"><img src="//static.msromantic.com/167540/sophia-tolli-wedding-dress-y21520-carson.jpg" alt="Sophia Tolli Wedding Dress Y21520 Carson" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sophia-tolli/71382-sophia-tolli-wedding-dress-y21520-carson.html](https://www.readybrides.com/en/sophia-tolli/71382-sophia-tolli-wedding-dress-y21520-carson.html)
+<!-- break --><a href="https://www.antebrands.com/en/sophia-tolli/71382-sophia-tolli-wedding-dress-y21520-carson.html"><img src="//static.msromantic.com/167540/sophia-tolli-wedding-dress-y21520-carson.jpg" alt="Sophia Tolli Wedding Dress Y21520 Carson" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sophia-tolli/71382-sophia-tolli-wedding-dress-y21520-carson.html](https://www.antebrands.com/en/sophia-tolli/71382-sophia-tolli-wedding-dress-y21520-carson.html)

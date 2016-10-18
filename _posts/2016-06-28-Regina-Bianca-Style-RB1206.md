@@ -9,7 +9,7 @@ tags: [Regina Bianca]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/regina-bianca/70008-regina-bianca-style-rb1206.html"><img src="//static.msromantic.com/164677/regina-bianca-style-rb1206.jpg" alt="Regina Bianca Style RB1206" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/regina-bianca/70008-regina-bianca-style-rb1206.html"><img src="//static.msromantic.com/164677/regina-bianca-style-rb1206.jpg" alt="Regina Bianca Style RB1206" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/regina-bianca/70008-regina-bianca-style-rb1206.html"><img src="//static.msromantic.com/164676/regina-bianca-style-rb1206.jpg" alt="Regina Bianca Style RB1206" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/regina-bianca/70008-regina-bianca-style-rb1206.html](https://www.readybrides.com/en/regina-bianca/70008-regina-bianca-style-rb1206.html)
+<!-- break --><a href="https://www.antebrands.com/en/regina-bianca/70008-regina-bianca-style-rb1206.html"><img src="//static.msromantic.com/164676/regina-bianca-style-rb1206.jpg" alt="Regina Bianca Style RB1206" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/regina-bianca/70008-regina-bianca-style-rb1206.html](https://www.antebrands.com/en/regina-bianca/70008-regina-bianca-style-rb1206.html)

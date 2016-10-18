@@ -9,7 +9,7 @@ tags: [Sally Eagle BRIDESMAID DRESSES]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sally-eagle-bridesmaid-dresses/67699-sally-eagle-daisy.html"><img src="//static.msromantic.com/157088/sally-eagle-daisy.jpg" alt="Sally Eagle DAISY" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sally-eagle-bridesmaid-dresses/67699-sally-eagle-daisy.html"><img src="//static.msromantic.com/157088/sally-eagle-daisy.jpg" alt="Sally Eagle DAISY" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sally-eagle-bridesmaid-dresses/67699-sally-eagle-daisy.html"><img src="//static.msromantic.com/157086/sally-eagle-daisy.jpg" alt="Sally Eagle DAISY" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sally-eagle-bridesmaid-dresses/67699-sally-eagle-daisy.html](https://www.readybrides.com/en/sally-eagle-bridesmaid-dresses/67699-sally-eagle-daisy.html)
+<!-- break --><a href="https://www.antebrands.com/en/sally-eagle-bridesmaid-dresses/67699-sally-eagle-daisy.html"><img src="//static.msromantic.com/157086/sally-eagle-daisy.jpg" alt="Sally Eagle DAISY" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sally-eagle-bridesmaid-dresses/67699-sally-eagle-daisy.html](https://www.antebrands.com/en/sally-eagle-bridesmaid-dresses/67699-sally-eagle-daisy.html)

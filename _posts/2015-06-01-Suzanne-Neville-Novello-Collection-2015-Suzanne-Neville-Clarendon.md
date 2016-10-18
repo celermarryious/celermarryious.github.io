@@ -9,7 +9,7 @@ tags: [Suzanne Neville Novello Collection 2015]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/suzanne-neville-novello-collection-2015/68681-suzanne-neville-clarendon.html"><img src="//static.msromantic.com/160329/suzanne-neville-clarendon.jpg" alt="Suzanne Neville Clarendon" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/suzanne-neville-novello-collection-2015/68681-suzanne-neville-clarendon.html"><img src="//static.msromantic.com/160329/suzanne-neville-clarendon.jpg" alt="Suzanne Neville Clarendon" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/suzanne-neville-novello-collection-2015/68681-suzanne-neville-clarendon.html](https://www.readybrides.com/en/suzanne-neville-novello-collection-2015/68681-suzanne-neville-clarendon.html)
+Buy it: [https://www.antebrands.com/en/suzanne-neville-novello-collection-2015/68681-suzanne-neville-clarendon.html](https://www.antebrands.com/en/suzanne-neville-novello-collection-2015/68681-suzanne-neville-clarendon.html)

@@ -9,7 +9,7 @@ tags: [Romantica of Devon Romantica Bridesmaids 2016]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66687-romantica-of-devon-evie.html"><img src="//static.msromantic.com/154481/romantica-of-devon-evie.jpg" alt="Romantica of Devon Evie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66687-romantica-of-devon-evie.html"><img src="//static.msromantic.com/154481/romantica-of-devon-evie.jpg" alt="Romantica of Devon Evie" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66687-romantica-of-devon-evie.html](https://www.readybrides.com/en/romantica-of-devon-romantica-bridesmaids-2016/66687-romantica-of-devon-evie.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66687-romantica-of-devon-evie.html](https://www.antebrands.com/en/romantica-of-devon-romantica-bridesmaids-2016/66687-romantica-of-devon-evie.html)

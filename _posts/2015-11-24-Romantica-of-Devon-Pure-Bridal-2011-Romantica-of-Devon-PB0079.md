@@ -9,7 +9,7 @@ tags: [Romantica of Devon Pure Bridal 2011]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2011/66989-romantica-of-devon-pb0079.html"><img src="//static.msromantic.com/155174/romantica-of-devon-pb0079.jpg" alt="Romantica of Devon PB0079" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2011/66989-romantica-of-devon-pb0079.html"><img src="//static.msromantic.com/155174/romantica-of-devon-pb0079.jpg" alt="Romantica of Devon PB0079" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2011/66989-romantica-of-devon-pb0079.html](https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2011/66989-romantica-of-devon-pb0079.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2011/66989-romantica-of-devon-pb0079.html](https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2011/66989-romantica-of-devon-pb0079.html)

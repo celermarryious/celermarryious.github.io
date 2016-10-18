@@ -9,7 +9,7 @@ tags: [Suzanne Neville Songbird Collection 2016]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/suzanne-neville-songbird-collection-2016/68671-suzanne-neville-melody.html"><img src="//static.msromantic.com/160319/suzanne-neville-melody.jpg" alt="Suzanne Neville Melody" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/suzanne-neville-songbird-collection-2016/68671-suzanne-neville-melody.html"><img src="//static.msromantic.com/160319/suzanne-neville-melody.jpg" alt="Suzanne Neville Melody" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/suzanne-neville-songbird-collection-2016/68671-suzanne-neville-melody.html](https://www.readybrides.com/en/suzanne-neville-songbird-collection-2016/68671-suzanne-neville-melody.html)
+Buy it: [https://www.antebrands.com/en/suzanne-neville-songbird-collection-2016/68671-suzanne-neville-melody.html](https://www.antebrands.com/en/suzanne-neville-songbird-collection-2016/68671-suzanne-neville-melody.html)

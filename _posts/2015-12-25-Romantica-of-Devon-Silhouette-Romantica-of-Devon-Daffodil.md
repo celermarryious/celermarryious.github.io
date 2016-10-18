@@ -9,7 +9,7 @@ tags: [Romantica of Devon Silhouette]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-silhouette/67020-romantica-of-devon-daffodil.html"><img src="//static.msromantic.com/155233/romantica-of-devon-daffodil.jpg" alt="Romantica of Devon Daffodil" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-silhouette/67020-romantica-of-devon-daffodil.html"><img src="//static.msromantic.com/155233/romantica-of-devon-daffodil.jpg" alt="Romantica of Devon Daffodil" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-silhouette/67020-romantica-of-devon-daffodil.html](https://www.readybrides.com/en/romantica-of-devon-silhouette/67020-romantica-of-devon-daffodil.html)
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-silhouette/67020-romantica-of-devon-daffodil.html](https://www.antebrands.com/en/romantica-of-devon-silhouette/67020-romantica-of-devon-daffodil.html)

@@ -9,8 +9,8 @@ tags: [Kenneth Winston wedding dress]
 Just **$489.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html"><img src="//static.msromantic.com/154708/kenneth-winston-1590.jpg" alt="Kenneth Winston 1590" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html"><img src="//static.msromantic.com/154708/kenneth-winston-1590.jpg" alt="Kenneth Winston 1590" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html"><img src="//static.msromantic.com/154710/kenneth-winston-1590.jpg" alt="Kenneth Winston 1590" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html"><img src="//static.msromantic.com/154706/kenneth-winston-1590.jpg" alt="Kenneth Winston 1590" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html](https://www.readybrides.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html)
+<!-- break --><a href="https://www.antebrands.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html"><img src="//static.msromantic.com/154710/kenneth-winston-1590.jpg" alt="Kenneth Winston 1590" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html"><img src="//static.msromantic.com/154706/kenneth-winston-1590.jpg" alt="Kenneth Winston 1590" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html](https://www.antebrands.com/en/kenneth-winston-wedding-dress/66832-kenneth-winston-1590.html)

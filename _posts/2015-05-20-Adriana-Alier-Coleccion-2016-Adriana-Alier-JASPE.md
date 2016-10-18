@@ -9,7 +9,7 @@ tags: [Adriana Alier Coleccion 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71471-adriana-alier-jaspe.html"><img src="//static.msromantic.com/167728/adriana-alier-jaspe.jpg" alt="Adriana Alier JASPE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71471-adriana-alier-jaspe.html"><img src="//static.msromantic.com/167728/adriana-alier-jaspe.jpg" alt="Adriana Alier JASPE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adriana-alier-coleccion-2016/71471-adriana-alier-jaspe.html"><img src="//static.msromantic.com/167727/adriana-alier-jaspe.jpg" alt="Adriana Alier JASPE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adriana-alier-coleccion-2016/71471-adriana-alier-jaspe.html](https://www.readybrides.com/en/adriana-alier-coleccion-2016/71471-adriana-alier-jaspe.html)
+<!-- break --><a href="https://www.antebrands.com/en/adriana-alier-coleccion-2016/71471-adriana-alier-jaspe.html"><img src="//static.msromantic.com/167727/adriana-alier-jaspe.jpg" alt="Adriana Alier JASPE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adriana-alier-coleccion-2016/71471-adriana-alier-jaspe.html](https://www.antebrands.com/en/adriana-alier-coleccion-2016/71471-adriana-alier-jaspe.html)

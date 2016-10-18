@@ -9,8 +9,8 @@ tags: [Romantica of Devon Pure Bridal 2016]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html"><img src="//static.msromantic.com/154664/romantica-of-devon-edina.jpg" alt="Romantica of Devon Edina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html"><img src="//static.msromantic.com/154664/romantica-of-devon-edina.jpg" alt="Romantica of Devon Edina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html"><img src="//static.msromantic.com/154666/romantica-of-devon-edina.jpg" alt="Romantica of Devon Edina" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html"><img src="//static.msromantic.com/154663/romantica-of-devon-edina.jpg" alt="Romantica of Devon Edina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html](https://www.readybrides.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html)
+<!-- break --><a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html"><img src="//static.msromantic.com/154666/romantica-of-devon-edina.jpg" alt="Romantica of Devon Edina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html"><img src="//static.msromantic.com/154663/romantica-of-devon-edina.jpg" alt="Romantica of Devon Edina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html](https://www.antebrands.com/en/romantica-of-devon-pure-bridal-2016/66818-romantica-of-devon-edina.html)
