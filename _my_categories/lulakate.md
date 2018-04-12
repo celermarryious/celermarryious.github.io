@@ -1,4 +1,0 @@
----
-slug: lulakate
-name: LulaKate
----
