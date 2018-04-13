@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-01-10'
+date: 2017-01-10
 title: "Affinity Bridal Gowns Mila"
 category: Affinity
 tags: [Affinity]

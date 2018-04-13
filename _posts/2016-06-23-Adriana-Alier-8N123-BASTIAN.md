@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-06-23'
+date: 2016-06-23
 title: "Adriana Alier 8N123 BASTIAN"
 category: Adriana Alier
 tags: [Adriana Alier]

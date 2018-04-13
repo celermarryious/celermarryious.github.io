@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-10-15'
+date: 2016-10-15
 title: "Avenue Diagonal Style ULMA"
 category: Avenue Diagonal
 tags: [Avenue Diagonal]

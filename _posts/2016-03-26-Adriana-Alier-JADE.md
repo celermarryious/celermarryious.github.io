@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-03-26'
+date: 2016-03-26
 title: "Adriana Alier JADE"
 category: Adriana Alier
 tags: [Adriana Alier]

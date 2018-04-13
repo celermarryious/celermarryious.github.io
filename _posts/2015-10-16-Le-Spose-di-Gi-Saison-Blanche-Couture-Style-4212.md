@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2015-10-16'
+date: 2015-10-16
 title: "Le Spose di Giò Saison Blanche Couture Style 4212"
 category: Le Spose di Giò
 tags: [Le Spose di Giò,Saison Blanche]
